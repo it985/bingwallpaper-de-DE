@@ -1,4 +1,4 @@
-﻿package com.wdbyte.bing;
+package com.wdbyte.bing;
 
 import java.io.IOException;
 import java.time.LocalDate;
