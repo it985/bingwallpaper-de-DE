@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-13 | [Ruinen der mittelalterlichen Burg des Johanniterordens oberhalb des Dorfes Chorio, Insel Chalki, Griechenland (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_DE-DE7351494423_UHD.jpg) 
+
 2022-11-12 | [Gruppe von Weißkopfseeadlern in der Nähe von Haines, Alaska, USA (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_DE-DE7189622453_UHD.jpg) 
 
 2022-10-28 | [Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) 
