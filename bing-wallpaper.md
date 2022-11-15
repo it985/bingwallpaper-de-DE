@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-15 | [Braunbrustigel in Sussex, England, Vereinigtes Königreich (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_DE-DE7501309062_UHD.jpg) 
+
 2022-11-14 | [Luftaufnahme der Isar an der Einmündung in den Sylvensteinspeicher, Isarwinkel, Lenggries, Bayern (© Martin Siepmann/Shutterstock)](https://global.bing.com/th?id=OHR.IsarwinkelSylvenstein_DE-DE5855301818_UHD.jpg) 
 
 2022-11-13 | [Ruinen der mittelalterlichen Burg des Johanniterordens oberhalb des Dorfes Chorio, Insel Chalki, Griechenland (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_DE-DE7351494423_UHD.jpg) 
