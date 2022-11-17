@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-17 | [Brücke auf dem McKenzie River Trail, Willamette National Forest, Oregon, USA (© Don Paulson/Danita Delimont)](https://global.bing.com/th?id=OHR.McKenzieRiverTrail_DE-DE7823678540_UHD.jpg) 
+
 2022-11-16 | [Felsenwohnungen im Mesa-Verde-Nationalpark in Colorado, USA (© Brad McGinley Photography/Getty Images)](https://global.bing.com/th?id=OHR.Unesco50_DE-DE7652061087_UHD.jpg) 
 
 2022-11-15 | [Braunbrustigel in Sussex, England, Vereinigtes Königreich (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_DE-DE7501309062_UHD.jpg) 
