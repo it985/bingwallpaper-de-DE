@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-18 | [Tore des Königspalasts „Dar El Makhzen“ in Fès, Marokko (© Adam Smigielski/Getty Images)](https://global.bing.com/th?id=OHR.IslamicArt_DE-DE3832982768_UHD.jpg) 
+
 2022-11-17 | [Brücke auf dem McKenzie River Trail, Willamette National Forest, Oregon, USA (© Don Paulson/Danita Delimont)](https://global.bing.com/th?id=OHR.McKenzieRiverTrail_DE-DE7823678540_UHD.jpg) 
 
 2022-11-16 | [Felsenwohnungen im Mesa-Verde-Nationalpark in Colorado, USA (© Brad McGinley Photography/Getty Images)](https://global.bing.com/th?id=OHR.Unesco50_DE-DE7652061087_UHD.jpg) 
