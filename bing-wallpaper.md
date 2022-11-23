@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-23 | [Sonnenblume (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_DE-DE4809686194_UHD.jpg) 
+
 2022-11-22 | [Rotfuchs im Naturschutzgebiet Amsterdamse Waterleidingduinen, Niederlande (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_DE-DE4558684615_UHD.jpg) 
 
 2022-11-21 | [Ahmad Bin Ali Stadium in Doha, Katar (© Qatar 2022/Supreme Committee via Getty Images)](https://global.bing.com/th?id=OHR.FIFA2022_DE-DE4407857199_UHD.jpg) 
