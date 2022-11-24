@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-24 | [Weihnachtsmarkt an der Frauenkirche, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)](https://global.bing.com/th?id=OHR.WeihnachtsmarktFrauenkirche_DE-DE5434525461_UHD.jpg) 
+
 2022-11-23 | [Sonnenblume (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_DE-DE4809686194_UHD.jpg) 
 
 2022-11-22 | [Rotfuchs im Naturschutzgebiet Amsterdamse Waterleidingduinen, Niederlande (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_DE-DE4558684615_UHD.jpg) 
