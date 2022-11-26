@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-26 | [Ein Olivenbaum vor dem Concordia-Tempel in Agrigent, Sizilien, Italien (© Alfio Finocchiaro/Shutterstock)](https://global.bing.com/th?id=OHR.OliveTreeDay_DE-DE6100270933_UHD.jpg) 
+
 2022-11-25 | [Das Bergdorf Turenne bei Sonnenaufgang, Département Corrèze, Region Nouvelle-Aquitaine, Frankreich (© Tim Mannakee/plainpicture)](https://global.bing.com/th?id=OHR.TurenneSunrise_DE-DE5722564700_UHD.jpg) 
 
 2022-11-24 | [Weihnachtsmarkt an der Frauenkirche, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)](https://global.bing.com/th?id=OHR.WeihnachtsmarktFrauenkirche_DE-DE5434525461_UHD.jpg) 
