@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-02 | [Delta des Tlikakila River im Lake-Clark-Nationalpark, Alaska, USA (© Dawn Wilson Photography/Getty Images)](https://global.bing.com/th?id=OHR.BraidedRiverDelta_DE-DE9595164711_UHD.jpg) 
+
 2022-11-27 | [Blatt eines Ameisenbaums mit Blüten der Hängenden Hummerschere, Mexiko (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_DE-DE6397457902_UHD.jpg) 
 
 2022-11-26 | [Ein Olivenbaum vor dem Concordia-Tempel in Agrigent, Sizilien, Italien (© Alfio Finocchiaro/Shutterstock)](https://global.bing.com/th?id=OHR.OliveTreeDay_DE-DE6100270933_UHD.jpg) 
