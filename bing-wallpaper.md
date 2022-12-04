@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-04 | [Elefanten in der Nähe des Kilimandscharo, Amboseli-Nationalpark, Kenia (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_DE-DE1330663684_UHD.jpg) 
+
 2022-12-03 | [Ocean Drive, Miami Beach, Florida, USA (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.MiamiDT_DE-DE9731630617_UHD.jpg) 
 
 2022-12-02 | [Delta des Tlikakila River im Lake-Clark-Nationalpark, Alaska, USA (© Dawn Wilson Photography/Getty Images)](https://global.bing.com/th?id=OHR.BraidedRiverDelta_DE-DE9595164711_UHD.jpg) 
