@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-09 | [Kathedrale von Florenz, Italien (© Alexander Baert/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.FlorenceAerial_DE-DE6146682535_UHD.jpg) 
+
 2022-12-08 | [Moschusochsenmutter und Kalb im Dovrefjell-Sunndalsfjella-Nationalpark, Norwegen (© Robert Haasmann/Minden Pictures)](https://global.bing.com/th?id=OHR.NorwayMuskox_DE-DE4462995800_UHD.jpg) 
 
 2022-12-04 | [Elefanten in der Nähe des Kilimandscharo, Amboseli-Nationalpark, Kenia (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_DE-DE1330663684_UHD.jpg) 
