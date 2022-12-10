@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-10 | [Salar de Uyuni, Bolivien (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_DE-DE6440829768_UHD.jpg) 
+
 2022-12-09 | [Kathedrale von Florenz, Italien (© Alexander Baert/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.FlorenceAerial_DE-DE6146682535_UHD.jpg) 
 
 2022-12-08 | [Moschusochsenmutter und Kalb im Dovrefjell-Sunndalsfjella-Nationalpark, Norwegen (© Robert Haasmann/Minden Pictures)](https://global.bing.com/th?id=OHR.NorwayMuskox_DE-DE4462995800_UHD.jpg) 
