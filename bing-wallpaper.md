@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-11 | [Blick vom Roßstein auf den Buchstein und die Tegernseer Hütte, Bayern (© Christian Bäck/eStock Photo)](https://global.bing.com/th?id=OHR.BuchsteinRossstein_DE-DE6786303987_UHD.jpg) 
+
 2022-12-10 | [Salar de Uyuni, Bolivien (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_DE-DE6440829768_UHD.jpg) 
 
 2022-12-09 | [Kathedrale von Florenz, Italien (© Alexander Baert/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.FlorenceAerial_DE-DE6146682535_UHD.jpg) 
