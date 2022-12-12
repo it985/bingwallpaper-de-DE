@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-12 | [Weihnachtssterne (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_DE-DE7513624511_UHD.jpg) 
+
 2022-12-11 | [Blick vom Roßstein auf den Buchstein und die Tegernseer Hütte, Bayern (© Christian Bäck/eStock Photo)](https://global.bing.com/th?id=OHR.BuchsteinRossstein_DE-DE6786303987_UHD.jpg) 
 
 2022-12-10 | [Salar de Uyuni, Bolivien (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_DE-DE6440829768_UHD.jpg) 
