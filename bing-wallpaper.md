@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-14 | [Tangle Creek Falls im Jasper-Nationalpark, Alberta, Kanada (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.TangleCreekFalls_DE-DE8307703084_UHD.jpg) 
+
 2022-12-13 | [Hallstatt, Österreich (© Jon Arnold Images Ltd/Alamy)](https://global.bing.com/th?id=OHR.InstagramHallstatt_DE-DE7910698977_UHD.jpg) 
 
 2022-12-12 | [Weihnachtssterne (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_DE-DE7513624511_UHD.jpg) 
