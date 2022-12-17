@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-17 | [Schneeziegen im Glacier-Nationalpark, Montana, USA (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_DE-DE2986564884_UHD.jpg) 
+
 2022-12-16 | [Weihnachtsbeleuchtung im Atlanta Botanical Garden in Georgia, USA (© Natalia Kuzmina/Alamy)](https://global.bing.com/th?id=OHR.AtlantaLights_DE-DE2783821552_UHD.jpg) 
 
 2022-12-15 | [Borowez, Bulgarien (© Grigor Ivanov/Cavan Images)](https://global.bing.com/th?id=OHR.Borovets_DE-DE8625039774_UHD.jpg) 
