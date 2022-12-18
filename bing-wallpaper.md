@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-18 | [Thermalfreibad Blaue Lagune (Bláa Lónið), Grindavík, Island (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.BlueLagoon_DE-DE3379100071_UHD.jpg) 
+
 2022-12-17 | [Schneeziegen im Glacier-Nationalpark, Montana, USA (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_DE-DE2986564884_UHD.jpg) 
 
 2022-12-16 | [Weihnachtsbeleuchtung im Atlanta Botanical Garden in Georgia, USA (© Natalia Kuzmina/Alamy)](https://global.bing.com/th?id=OHR.AtlantaLights_DE-DE2783821552_UHD.jpg) 
