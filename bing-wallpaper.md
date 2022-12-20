@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-20 | [Weihnachtsmarkt am Schloss Belvedere, Wien, Österreich (© Diyana Dimitrova/Alamy)](https://global.bing.com/th?id=OHR.PalaceBelvedere_DE-DE3706375084_UHD.jpg) 
+
 2022-12-19 | [Ein Rotkardinal in einem Winterbeerenstrauch, Marion County, Illinois, USA (© Richard and Susan Day/Danita Delimont)](https://global.bing.com/th?id=OHR.WinterberryBush_DE-DE3520378929_UHD.jpg) 
 
 2022-12-18 | [Thermalfreibad Blaue Lagune (Bláa Lónið), Grindavík, Island (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.BlueLagoon_DE-DE3379100071_UHD.jpg) 
