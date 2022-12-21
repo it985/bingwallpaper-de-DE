@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-21 | [Halo über dem Antermoiasee, Trentino, Dolomiten, Italien (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_DE-DE4160905401_UHD.jpg) 
+
 2022-12-20 | [Weihnachtsmarkt am Schloss Belvedere, Wien, Österreich (© Diyana Dimitrova/Alamy)](https://global.bing.com/th?id=OHR.PalaceBelvedere_DE-DE3706375084_UHD.jpg) 
 
 2022-12-19 | [Ein Rotkardinal in einem Winterbeerenstrauch, Marion County, Illinois, USA (© Richard and Susan Day/Danita Delimont)](https://global.bing.com/th?id=OHR.WinterberryBush_DE-DE3520378929_UHD.jpg) 
