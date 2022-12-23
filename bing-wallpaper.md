@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-23 | [Eselspinguine in der Antarktis (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.GentooGrievances_DE-DE5029170533_UHD.jpg) 
+
 2022-12-22 | [Weihnachtsbaum im Kaufhaus Galeries Lafayette in Paris, Frankreich (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TreeGaleriesLafayette_DE-DE4448669355_UHD.jpg) 
 
 2022-12-21 | [Halo über dem Antermoiasee, Trentino, Dolomiten, Italien (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_DE-DE4160905401_UHD.jpg) 
