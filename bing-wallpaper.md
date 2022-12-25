@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-25 | [Mini-Weihnachtsdorf in Straßburg, Frankreich (© Kavalenkava Volha/Alamy)](https://global.bing.com/th?id=OHR.ChristmasSouvenir_DE-DE6720752177_UHD.jpg) 
+
 2022-12-24 | [Weihnachtsbaum bei Berchtesgaden mit dem Watzmann im Hintergrund, Bayern (© Günter Gräfenhain/eStock Photo)](https://global.bing.com/th?id=OHR.WeihnachtenWatzmann_DE-DE6323542164_UHD.jpg) 
 
 2022-12-23 | [Eselspinguine in der Antarktis (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.GentooGrievances_DE-DE5029170533_UHD.jpg) 
