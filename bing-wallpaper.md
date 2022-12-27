@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-27 | [Maloja, Schweiz (© Roberto Moiola/Getty)](https://global.bing.com/th?id=OHR.ChiesaBianca_DE-DE7464793229_UHD.jpg) 
+
 2022-12-26 | [Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)](https://global.bing.com/th?id=OHR.BeverleyWestwood_DE-DE6933411273_UHD.jpg) 
 
 2022-12-25 | [Mini-Weihnachtsdorf in Straßburg, Frankreich (© Kavalenkava Volha/Alamy)](https://global.bing.com/th?id=OHR.ChristmasSouvenir_DE-DE6720752177_UHD.jpg) 
