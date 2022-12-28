@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-28 | [Der finnische Skispringer Antti Aalto während seines Sprungs bei der Vierschanzentournee in Oberstdorf am 29. Dezember 2020, Bayern (© Adam Pretty/Getty Images)](https://global.bing.com/th?id=OHR.OberstdorfSkispringen_DE-DE7762481456_UHD.jpg) 
+
 2022-12-27 | [Maloja, Schweiz (© Roberto Moiola/Getty)](https://global.bing.com/th?id=OHR.ChiesaBianca_DE-DE7464793229_UHD.jpg) 
 
 2022-12-26 | [Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)](https://global.bing.com/th?id=OHR.BeverleyWestwood_DE-DE6933411273_UHD.jpg) 
