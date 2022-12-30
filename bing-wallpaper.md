@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-30 | [Felsformationen in der Weißen Wüste, Ägypten (© Anton Petrus/Getty Images)](https://global.bing.com/th?id=OHR.ChalkRock_DE-DE4812578556_UHD.jpg) 
+
 2022-12-29 | [Ein Paar Geißklee-Bläulinge (© Misja Smits/Minden Pictures)](https://global.bing.com/th?id=OHR.ButterflyEffect_DE-DE7912062583_UHD.jpg) 
 
 2022-12-28 | [Der finnische Skispringer Antti Aalto während seines Sprungs bei der Vierschanzentournee in Oberstdorf am 29. Dezember 2020, Bayern (© Adam Pretty/Getty Images)](https://global.bing.com/th?id=OHR.OberstdorfSkispringen_DE-DE7762481456_UHD.jpg) 
