@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-02 | [Burg Hohenzollern, Baden-Württemberg (© Sahara Prince/Shutterstock)](https://global.bing.com/th?id=OHR.HohenzollernBurg_DE-DE5165513029_UHD.jpg) 
+
 2023-01-01 | [Eisbär, Spitzbergen, Norwegen (© Dennis Stogsdill/Getty Images)](https://global.bing.com/th?id=OHR.NorwayNYD_DE-DE5087400553_UHD.jpg) 
 
 2022-12-31 | [Silvesterfeuerwerk, Sydney Harbour Bridge, Sydney, Australien (© Wendell Teodoro/Getty Images)](https://global.bing.com/th?id=OHR.SydneyNYE_DE-DE4928573925_UHD.jpg) 
