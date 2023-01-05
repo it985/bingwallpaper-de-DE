@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-05 | [Harbiner Internationales Eis- und Schneefest, Harbin, Volksrepublik China (© STR/AFP via Getty Images)](https://global.bing.com/th?id=OHR.HIISSF_DE-DE5417261955_UHD.jpg) 
+
 2023-01-04 | [Blick von der Internationalen Raumstation auf die Erde (© JSC/NASA)](https://global.bing.com/th?id=OHR.Perihelion_DE-DE5314856003_UHD.jpg) 
 
 2023-01-03 | [Kanadakraniche, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Jay Goodrich/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SandhillSleeping_DE-DE5257089230_UHD.jpg) 
