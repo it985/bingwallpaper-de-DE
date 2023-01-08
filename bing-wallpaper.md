@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-08 | [Breckenridge, Colorado, USA (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.Breckenridge_DE-DE5751584348_UHD.jpg) 
+
 2023-01-07 | [Black Fell, Lake District, England, Vereinigtes Königreich (© Daniel Kay/Shutterstock)](https://global.bing.com/th?id=OHR.BlackFell_DE-DE5604022043_UHD.jpg) 
 
 2023-01-06 | [Hermelin im Winterfell, Oberbayern, Bayern (© Konrad Wothe/Minden)](https://global.bing.com/th?id=OHR.HermelinSchnee_DE-DE5463277737_UHD.jpg) 
