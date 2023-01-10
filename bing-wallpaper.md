@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-10 | [Eisschollen auf dem Peipussee, Estland (© Sven Zacek/Minden Pictures)](https://global.bing.com/th?id=OHR.HummockIce_DE-DE5996475227_UHD.jpg) 
+
 2023-01-09 | [Teufelsbrücke im Bergpark Wilhelmshöhe, UNESCO-Welterbestätte, Kassel, Hessen (© Wilfried Martin/Alamy)](https://global.bing.com/th?id=OHR.TeufelsbrueckeWilhelmshoehe_DE-DE5843541762_UHD.jpg) 
 
 2023-01-08 | [Breckenridge, Colorado, USA (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.Breckenridge_DE-DE5751584348_UHD.jpg) 
