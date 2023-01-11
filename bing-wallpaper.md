@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-11 | [Skulptur „Umschreibung“ des Künstlers Ólafur Elíasson in München (© Manfred Bail/Alamy)](https://global.bing.com/th?id=OHR.Umschreibung_DE-DE6146342489_UHD.jpg) 
+
 2023-01-10 | [Eisschollen auf dem Peipussee, Estland (© Sven Zacek/Minden Pictures)](https://global.bing.com/th?id=OHR.HummockIce_DE-DE5996475227_UHD.jpg) 
 
 2023-01-09 | [Teufelsbrücke im Bergpark Wilhelmshöhe, UNESCO-Welterbestätte, Kassel, Hessen (© Wilfried Martin/Alamy)](https://global.bing.com/th?id=OHR.TeufelsbrueckeWilhelmshoehe_DE-DE5843541762_UHD.jpg) 
