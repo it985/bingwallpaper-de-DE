@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-13 | [Riesentang im nationalen Meeresschutzgebiet Channel Island, Kalifornien, USA (© Brandon Cole Images/Shutterstock)](https://global.bing.com/th?id=OHR.Pneumatocysts_DE-DE7897305526_UHD.jpg) 
+
 2023-01-12 | [Die Festung Rumeli Hisarı am Bosporus, Istanbul, Türkei (© Drone in Wonderland/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.RumeliHisari_DE-DE6291736436_UHD.jpg) 
 
 2023-01-11 | [Skulptur „Umschreibung“ des Künstlers Ólafur Elíasson in München (© Manfred Bail/Alamy)](https://global.bing.com/th?id=OHR.Umschreibung_DE-DE6146342489_UHD.jpg) 
