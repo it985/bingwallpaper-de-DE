@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-14 | [Hausesel beim Fressen von Kirschzweigen (© Juniors Bildarchiv GmbH/Alamy)](https://global.bing.com/th?id=OHR.DonkeyFeast_DE-DE8657491831_UHD.jpg) 
+
 2023-01-13 | [Riesentang im nationalen Meeresschutzgebiet Channel Island, Kalifornien, USA (© Brandon Cole Images/Shutterstock)](https://global.bing.com/th?id=OHR.Pneumatocysts_DE-DE7897305526_UHD.jpg) 
 
 2023-01-12 | [Die Festung Rumeli Hisarı am Bosporus, Istanbul, Türkei (© Drone in Wonderland/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.RumeliHisari_DE-DE6291736436_UHD.jpg) 
