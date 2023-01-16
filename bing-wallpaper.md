@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-16 | [Bergpalais, Schloss Pillnitz, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)](https://global.bing.com/th?id=OHR.BergpalaisPillnitz_DE-DE0888287933_UHD.jpg) 
+
 2023-01-15 | [Aurajoki in Turku, Finnland (© Jarmo Piironen/Alamy)](https://global.bing.com/th?id=OHR.Turku_DE-DE9090739425_UHD.jpg) 
 
 2023-01-14 | [Hausesel beim Fressen von Kirschzweigen (© Juniors Bildarchiv GmbH/Alamy)](https://global.bing.com/th?id=OHR.DonkeyFeast_DE-DE8657491831_UHD.jpg) 
