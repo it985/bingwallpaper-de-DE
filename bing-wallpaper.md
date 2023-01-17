@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-17 | [Das Naturschutzgebiet Muniellos in Asturien, Spanien (© Andres M. Dominguez/Minden Pictures)](https://global.bing.com/th?id=OHR.SessileOaks_DE-DE9549638738_UHD.jpg) 
+
 2023-01-16 | [Bergpalais, Schloss Pillnitz, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)](https://global.bing.com/th?id=OHR.BergpalaisPillnitz_DE-DE0888287933_UHD.jpg) 
 
 2023-01-15 | [Aurajoki in Turku, Finnland (© Jarmo Piironen/Alamy)](https://global.bing.com/th?id=OHR.Turku_DE-DE9090739425_UHD.jpg) 
