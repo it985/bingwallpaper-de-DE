@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-18 | [White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WhiteSands_DE-DE0407454776_UHD.jpg) 
+
 2023-01-17 | [Das Naturschutzgebiet Muniellos in Asturien, Spanien (© Andres M. Dominguez/Minden Pictures)](https://global.bing.com/th?id=OHR.SessileOaks_DE-DE9549638738_UHD.jpg) 
 
 2023-01-16 | [Bergpalais, Schloss Pillnitz, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)](https://global.bing.com/th?id=OHR.BergpalaisPillnitz_DE-DE0888287933_UHD.jpg) 
