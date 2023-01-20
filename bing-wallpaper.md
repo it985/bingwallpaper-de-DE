@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-20 | [Königspinguine auf den Falklandinseln (© Elmar Weiss/Getty Images)](https://global.bing.com/th?id=OHR.FalklandKings_DE-DE2111895344_UHD.jpg) 
+
 2023-01-19 | [Park City, Utah, USA (© Kruck20/Getty Images)](https://global.bing.com/th?id=OHR.SFFParkCity_DE-DE1452194180_UHD.jpg) 
 
 2023-01-18 | [White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WhiteSands_DE-DE0407454776_UHD.jpg) 
