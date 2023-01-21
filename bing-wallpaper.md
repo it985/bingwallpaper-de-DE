@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-21 | [Waschbär (Procyon Lotor) zwei Babys klettern auf den Baum (© Tim Fitzharris/Minden)](https://global.bing.com/th?id=OHR.WaschbaerBirke_DE-DE2456768412_UHD.jpg) 
+
 2023-01-20 | [Königspinguine auf den Falklandinseln (© Elmar Weiss/Getty Images)](https://global.bing.com/th?id=OHR.FalklandKings_DE-DE2111895344_UHD.jpg) 
 
 2023-01-19 | [Park City, Utah, USA (© Kruck20/Getty Images)](https://global.bing.com/th?id=OHR.SFFParkCity_DE-DE1452194180_UHD.jpg) 
