@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-23 | [Moai-Statuen auf der Osterinsel, Chile (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SunriseMoai_DE-DE3592014111_UHD.jpg) 
+
 2023-01-22 | [Schneehase in Derbyshire, England (© Ben Hall/Minden Pictures)](https://global.bing.com/th?id=OHR.YearRabbit_DE-DE3138498119_UHD.jpg) 
 
 2023-01-21 | [Waschbär (Procyon Lotor) zwei Babys klettern auf den Baum (© Tim Fitzharris/Minden)](https://global.bing.com/th?id=OHR.WaschbaerBirke_DE-DE2456768412_UHD.jpg) 
