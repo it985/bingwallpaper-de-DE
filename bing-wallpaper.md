@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-27 | [Rote Mangrove im Guanahacabibes Nationalpark, Kuba (© Claudio Contreras/Minden Pictures)](https://global.bing.com/th?id=OHR.RedMangrove_DE-DE1625406419_UHD.jpg) 
+
 2023-01-26 | [Das Himmelstor im Tianmen-Berg-Nationalpark, China (© Shane P. White/Minden Pictures)](https://global.bing.com/th?id=OHR.HighArchChina_DE-DE5049467350_UHD.jpg) 
 
 2023-01-25 | [Statue von Robert Burns in den Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)](https://global.bing.com/th?id=OHR.BirksofAberfeldy_DE-DE4614252179_UHD.jpg) 
