@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-28 | [Türkisgrün Wasser um die Bahamas von der Internationalen Raumstation aus gesehen (© NASA)](https://global.bing.com/th?id=OHR.BlueBahamas_DE-DE4821412204_UHD.jpg) 
+
 2023-01-27 | [Rote Mangrove im Guanahacabibes Nationalpark, Kuba (© Claudio Contreras/Minden Pictures)](https://global.bing.com/th?id=OHR.RedMangrove_DE-DE1625406419_UHD.jpg) 
 
 2023-01-26 | [Das Himmelstor im Tianmen-Berg-Nationalpark, China (© Shane P. White/Minden Pictures)](https://global.bing.com/th?id=OHR.HighArchChina_DE-DE5049467350_UHD.jpg) 
