@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-29 | [Amsel in Essex, England (© Bill Coster/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.BlackbirdDay_DE-DE5591371007_UHD.jpg) 
+
 2023-01-28 | [Türkisgrün Wasser um die Bahamas von der Internationalen Raumstation aus gesehen (© NASA)](https://global.bing.com/th?id=OHR.BlueBahamas_DE-DE4821412204_UHD.jpg) 
 
 2023-01-27 | [Rote Mangrove im Guanahacabibes Nationalpark, Kuba (© Claudio Contreras/Minden Pictures)](https://global.bing.com/th?id=OHR.RedMangrove_DE-DE1625406419_UHD.jpg) 
