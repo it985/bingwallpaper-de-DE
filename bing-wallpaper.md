@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-30 | [Europameisterschaft im Eis- und Schneesegeln auf dem Plattensee in Ungarn (© mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IceSailingBalaton_DE-DE6659044258_UHD.jpg) 
+
 2023-01-29 | [Amsel in Essex, England (© Bill Coster/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.BlackbirdDay_DE-DE5591371007_UHD.jpg) 
 
 2023-01-28 | [Türkisgrün Wasser um die Bahamas von der Internationalen Raumstation aus gesehen (© NASA)](https://global.bing.com/th?id=OHR.BlueBahamas_DE-DE4821412204_UHD.jpg) 
