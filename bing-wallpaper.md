@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-31 | [Samenköpfe der Kanadischen Goldrute im Raureif im Morgenlicht, Wasgau, NP Pfälzerwald, Biosphärenreservat Pfälzerwald-Nordvogesen, Rheinland-Pfalz (©  mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.GoldruteWinter_DE-DE3393829775_UHD.jpg) 
+
 2023-01-30 | [Europameisterschaft im Eis- und Schneesegeln auf dem Plattensee in Ungarn (© mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IceSailingBalaton_DE-DE6659044258_UHD.jpg) 
 
 2023-01-29 | [Amsel in Essex, England (© Bill Coster/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.BlackbirdDay_DE-DE5591371007_UHD.jpg) 
