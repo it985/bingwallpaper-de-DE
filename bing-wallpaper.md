@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-02 | [Alpenmurmeltiere im Nationalpark Hohe Tauern, Österreich (© Michaela Walch/Alamy)](https://global.bing.com/th?id=OHR.GroundhogThree_DE-DE9828216785_UHD.jpg) 
+
 2023-02-01 | [Das Château de Pierrefonds im Departement Oise in der Picardie, Frankreich (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.SunriseCastle_DE-DE6987321313_UHD.jpg) 
 
 2023-01-31 | [Samenköpfe der Kanadischen Goldrute im Raureif im Morgenlicht, Wasgau, NP Pfälzerwald, Biosphärenreservat Pfälzerwald-Nordvogesen, Rheinland-Pfalz (©  mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.GoldruteWinter_DE-DE3393829775_UHD.jpg) 
