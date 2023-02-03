@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-03 | [Chateau Frontenac, Quebec-Stadt, Kanada (© Romiana Lee/Shutterstock)](https://global.bing.com/th?id=OHR.QuebecFrontenac_DE-DE0168248973_UHD.jpg) 
+
 2023-02-02 | [Alpenmurmeltiere im Nationalpark Hohe Tauern, Österreich (© Michaela Walch/Alamy)](https://global.bing.com/th?id=OHR.GroundhogThree_DE-DE9828216785_UHD.jpg) 
 
 2023-02-01 | [Das Château de Pierrefonds im Departement Oise in der Picardie, Frankreich (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.SunriseCastle_DE-DE6987321313_UHD.jpg) 
