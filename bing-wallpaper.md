@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-08 | [Rastplatz Ureddplassen an der Helgelandskysten Norwegian Scenic Route, Norwegen (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_DE-DE1771127643_UHD.jpg) 
+
 2023-02-07 | [Dorf Labro, Provinz Rieti, Italien (© Marco Ilari/Shutterstock)](https://global.bing.com/th?id=OHR.MedievalLabro_DE-DE1367991913_UHD.jpg) 
 
 2023-02-06 | [Fiordland-Nationalpark auf der Südinsel Neuseelands (© WitR/Adobe Stock)](https://global.bing.com/th?id=OHR.WaitangiFjordlandNP_DE-DE1132934646_UHD.jpg) 
