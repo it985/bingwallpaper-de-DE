@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-11 | [Die Milchstraße über Zabriskie Point, Death Valley, Kalifornien, USA (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.DarkSkiesDV_DE-DE8887826731_UHD.jpg) 
+
 2023-02-10 | [Antikes Theater von Epidaurus in der Provinz Argolis, Griechenland Griechenland (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.EpidaurusGreece_DE-DE1707916573_UHD.jpg) 
 
 2023-02-09 | [Unterer Antelope Canyon in Arizona, USA (© AZCat/Getty Images)](https://global.bing.com/th?id=OHR.LowerAntelopeAZ_DE-DE2106180406_UHD.jpg) 
