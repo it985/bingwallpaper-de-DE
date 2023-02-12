@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-12 | [Blaufußtölpel, Galápagos-Inseln, Ecuador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.BoobyDarwinDay_DE-DE5337975937_UHD.jpg) 
+
 2023-02-11 | [Die Milchstraße über Zabriskie Point, Death Valley, Kalifornien, USA (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.DarkSkiesDV_DE-DE8887826731_UHD.jpg) 
 
 2023-02-10 | [Antikes Theater von Epidaurus in der Provinz Argolis, Griechenland Griechenland (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.EpidaurusGreece_DE-DE1707916573_UHD.jpg) 
