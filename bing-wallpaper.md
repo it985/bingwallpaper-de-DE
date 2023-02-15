@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-15 | [Flusspferdmutter und -baby, Chobe-Nationalpark, Botsuana (© jacobeukman/Getty Images)](https://global.bing.com/th?id=OHR.HippoDayChobe_DE-DE9450104011_UHD.jpg) 
+
 2023-02-14 | [Iglu beim Otaru-Schneefest, Hokkaido, Japan (© T Photography/Shutterstock)](https://global.bing.com/th?id=OHR.OtaruIgloo_DE-DE9255380929_UHD.jpg) 
 
 2023-02-13 | [Achaches Aussichtspunkt, Tal des Mondes, Chile (© Ignacio Palacios/Getty Images)](https://global.bing.com/th?id=OHR.MoonValley_DE-DE9146527929_UHD.jpg) 
