@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-18 | [Eben Ice Caves, Michigan, USA (© Dean Pennala/Shutterstock)](https://global.bing.com/th?id=OHR.EbenIceCave_DE-DE2769796122_UHD.jpg) 
+
 2023-02-17 | [Allen-Kolibri auf roter Kängurupflanze (© GypsyPictureShow/Shutterstock)](https://global.bing.com/th?id=OHR.BirdcountAllen_DE-DE9670864483_UHD.jpg) 
 
 2023-02-16 | [Industriekletterer besteigen den Berlinale-Bären im Kino Zoo-Palast, Berlin (© Britta Pedersen/dpa/Alamy Live News)](https://global.bing.com/th?id=OHR.BerlinaleEroeffnung_DE-DE6394050974_UHD.jpg) 
