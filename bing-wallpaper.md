@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-21 | [Französisches Viertel, New Orleans, USA (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.MardiGrasNOLA_DE-DE2512685536_UHD.jpg) 
+
 2023-02-20 | [Itaimbezinho Canyon, Brasilien (© NidoHuebl/Getty Images)](https://global.bing.com/th?id=OHR.Itaimbezinho_DE-DE7568052813_UHD.jpg) 
 
 2023-02-19 | [Buckelwale, Maui, Hawaii, USA (© Flip Nicklin/Minden Pictures)](https://global.bing.com/th?id=OHR.MauiWhale_DE-DE2654887932_UHD.jpg) 
