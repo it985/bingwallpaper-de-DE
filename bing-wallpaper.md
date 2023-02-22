@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-22 | [Friedensglocke auf dem Gipfel des Fichtelbergs, Sachsen (© Jan Drahokoupil/Getty Images)](https://global.bing.com/th?id=OHR.FriedensglockeFichtelberg_DE-DE0791222522_UHD.jpg) 
+
 2023-02-21 | [Französisches Viertel, New Orleans, USA (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.MardiGrasNOLA_DE-DE2512685536_UHD.jpg) 
 
 2023-02-20 | [Itaimbezinho Canyon, Brasilien (© NidoHuebl/Getty Images)](https://global.bing.com/th?id=OHR.Itaimbezinho_DE-DE7568052813_UHD.jpg) 
