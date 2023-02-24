@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-24 | [Mandarinente, Richmond Park, London, UK (© Oscar Dewhurst/Minden Pictures)](https://global.bing.com/th?id=OHR.RichmondParkDuck_DE-DE8282627853_UHD.jpg) 
+
 2023-02-23 | [Paris, Frankreich (© somchaij/Shutterstock)](https://global.bing.com/th?id=OHR.ParisWinter_DE-DE2319621841_UHD.jpg) 
 
 2023-02-22 | [Friedensglocke auf dem Gipfel des Fichtelbergs, Sachsen (© Jan Drahokoupil/Getty Images)](https://global.bing.com/th?id=OHR.FriedensglockeFichtelberg_DE-DE0791222522_UHD.jpg) 
