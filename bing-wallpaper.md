@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-26 | [Reserva Nacional Tambopata, Peru (© Pere Rubi/Getty Images)](https://global.bing.com/th?id=OHR.CanopyPeru_DE-DE4866151394_UHD.jpg) 
+
 2023-02-25 | [Hoodoos, Bryce Canyon Nationalpark in Utah, USA (© Piriya Photography/Getty Images)](https://global.bing.com/th?id=OHR.BryceAnniv_DE-DE3264919137_UHD.jpg) 
 
 2023-02-24 | [Mandarinente, Richmond Park, London, UK (© Oscar Dewhurst/Minden Pictures)](https://global.bing.com/th?id=OHR.RichmondParkDuck_DE-DE8282627853_UHD.jpg) 
