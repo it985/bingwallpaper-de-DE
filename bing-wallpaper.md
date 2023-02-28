@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-28 | [Atrani, Amalfiküste, Italien (© Amazing Aerial/Shutterstock)](https://global.bing.com/th?id=OHR.AtraniAmalfi_DE-DE5478327830_UHD.jpg) 
+
 2023-02-27 | [Schlafende Eisbären in Kanada (© David Pike/Minden Pictures)](https://global.bing.com/th?id=OHR.PolarBearFrost_DE-DE6073981048_UHD.jpg) 
 
 2023-02-26 | [Reserva Nacional Tambopata, Peru (© Pere Rubi/Getty Images)](https://global.bing.com/th?id=OHR.CanopyPeru_DE-DE4866151394_UHD.jpg) 
