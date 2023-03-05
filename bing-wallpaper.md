@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-05 | [Luftaufnahme von terrassierten Reisfeldern, Yuanyang, China (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_DE-DE9214113644_UHD.jpg) 
+
 2023-03-04 | [Pico-Berg, Azoren, Portugal (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.PicoVolcano_DE-DE1654567075_UHD.jpg) 
 
 2023-03-03 | [Schwertwale in Spildra, Norwegen (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OrcaNorway_DE-DE0674543604_UHD.jpg) 
