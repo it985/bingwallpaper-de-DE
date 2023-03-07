@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-07 | [Parktheater im Kurhaus Göggingen, Architekt Jean Keller, Bayern (© imageBROKER/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.ParktheaterGoeggingen_DE-DE8359643455_UHD.jpg) 
+
 2023-03-06 | [Islandpferde, Island (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_DE-DE4227259344_UHD.jpg) 
 
 2023-03-05 | [Luftaufnahme von terrassierten Reisfeldern, Yuanyang, China (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_DE-DE9214113644_UHD.jpg) 
