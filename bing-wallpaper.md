@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-08 | [Der Cibeles-Brunnen ist anlässlich des Internationalen Frauentags beleuchtet, Madrid, Spanien (© dpa picture alliance/Alamy)](https://global.bing.com/th?id=OHR.IntlWomensDayChange_DE-DE5354248480_UHD.jpg) 
+
 2023-03-07 | [Parktheater im Kurhaus Göggingen, Architekt Jean Keller, Bayern (© imageBROKER/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.ParktheaterGoeggingen_DE-DE8359643455_UHD.jpg) 
 
 2023-03-06 | [Islandpferde, Island (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_DE-DE4227259344_UHD.jpg) 
