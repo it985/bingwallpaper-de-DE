@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-09 | [Regenbogen über Waimea Canyon, Kauai, Hawaii, USA (© Beverley Van Praagh/Getty Images)](https://global.bing.com/th?id=OHR.WaimeaRainbow_DE-DE5723243026_UHD.jpg) 
+
 2023-03-08 | [Der Cibeles-Brunnen ist anlässlich des Internationalen Frauentags beleuchtet, Madrid, Spanien (© dpa picture alliance/Alamy)](https://global.bing.com/th?id=OHR.IntlWomensDayChange_DE-DE5354248480_UHD.jpg) 
 
 2023-03-07 | [Parktheater im Kurhaus Göggingen, Architekt Jean Keller, Bayern (© imageBROKER/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.ParktheaterGoeggingen_DE-DE8359643455_UHD.jpg) 
