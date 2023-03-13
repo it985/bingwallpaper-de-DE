@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-13 | [Schlafende Löwen, Serengeti-Nationalpark, Tansania (© Cavan Images/Shutterstock)](https://global.bing.com/th?id=OHR.LionessesNap_DE-DE5075026430_UHD.jpg) 
+
 2023-03-12 | [Nahaufnahme von Gerste und Kornblumen, Nordhausen (© Mandy Tabatt/EyeEm/Getty Images)](https://global.bing.com/th?id=OHR.Kornblume_DE-DE6250953229_UHD.jpg) 
 
 2023-03-11 | [Sumpfgebiet, Gloucester, Massachusetts, USA (© Thomas H. Mitchell/Getty Images)](https://global.bing.com/th?id=OHR.LongWharf_DE-DE5216800013_UHD.jpg) 
