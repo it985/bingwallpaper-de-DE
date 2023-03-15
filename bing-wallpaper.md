@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-15 | [Agüero, Spanien (© Andrea Comi/Getty Images)](https://global.bing.com/th?id=OHR.AgueroSpain_DE-DE4821398047_UHD.jpg) 
+
 2023-03-14 | [Botanischer Garten Cyherbia, Zypern (© Tpopova/Getty Images)](https://global.bing.com/th?id=OHR.CyprusMaze_DE-DE4969951002_UHD.jpg) 
 
 2023-03-13 | [Schlafende Löwen, Serengeti-Nationalpark, Tansania (© Cavan Images/Shutterstock)](https://global.bing.com/th?id=OHR.LionessesNap_DE-DE5075026430_UHD.jpg) 
