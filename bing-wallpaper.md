@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-19 | [Erlebnisholzkugel, Steinberg am See, Bayern (© Rüdiger Hess/geo-select FotoArt)](https://global.bing.com/th?id=OHR.Erlebnisholzkugel_DE-DE4313685757_UHD.jpg) 
+
 2023-03-18 | [Gamboa-Krater, Mars (© NASA/JPL-Caltech/University of Arizona)](https://global.bing.com/th?id=OHR.MarsTars_DE-DE4452444657_UHD.jpg) 
 
 2023-03-17 | [Ballyvooney Cove, Geopark Copper Coast, Irland (© Andrea Pistolesi/Getty Images)](https://global.bing.com/th?id=OHR.BallyvooneyCove_DE-DE4569274402_UHD.jpg) 
