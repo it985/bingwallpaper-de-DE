@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-22 | [Lake Powell, USA (© Peter Schaefer/Alamy)](https://global.bing.com/th?id=OHR.LakePowellAerial_DE-DE3911506117_UHD.jpg) 
+
 2023-03-21 | [Bunte Pastellkreide (© Stephen Shepherd/plainpicture)](https://global.bing.com/th?id=OHR.ColourDay_DE-DE4014967633_UHD.jpg) 
 
 2023-03-20 | [Violetter Krokus (© Raimund Linke/Getty Images)](https://global.bing.com/th?id=OHR.PurpleCrocus_DE-DE5881094519_UHD.jpg) 
