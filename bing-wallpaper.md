@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-27 | [New York City Skyline in den Wolken (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.NYCClouds_DE-DE4700650365_UHD.jpg) 
+
 2023-03-25 | [Blühender Mohn und Kornblumen in einem Rapsfeld, Penzlin (© Sandra Bartocha/Minden)](https://global.bing.com/th?id=OHR.Mohnblumen_DE-DE3068444341_UHD.jpg) 
 
 2023-03-24 | [Blühender Bärlauch, Nationalpark Hainich (© Frank Sommariva/Getty Images)](https://global.bing.com/th?id=OHR.WildGarlic_DE-DE0577126002_UHD.jpg) 
