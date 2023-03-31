@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-01 | [Java Flug-Frosch (© kuritafsheen/Getty Images)](https://global.bing.com/th?id=OHR.FrogMonth_DE-DE7731658257_UHD.jpg) 
+
 2023-03-31 | [Fluss Steyr, Österreich (© guenterguni/Getty Images)](https://global.bing.com/th?id=OHR.SteyrRiver_DE-DE6443128128_UHD.jpg) 
 
 2023-03-30 | [Pfauenfedern (© Sarayut Thaneerat/Getty Images)](https://global.bing.com/th?id=OHR.PeacockFeathers_DE-DE6056099620_UHD.jpg) 
