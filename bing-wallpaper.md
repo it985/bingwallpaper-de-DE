@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-03 | [Insel Helgoland, Schleswig-Holstein (© Iurii Buriak/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SchleswigHolsteinHelgoland_DE-DE2968840139_UHD.jpg) 
+
 2023-04-02 | [Der Berg Bromo in Ost-Java, Indonesien (© Bento Fotography/Getty Images)](https://global.bing.com/th?id=OHR.JavaBromo_DE-DE6568221020_UHD.jpg) 
 
 2023-04-01 | [Java Flug-Frosch (© kuritafsheen/Getty Images)](https://global.bing.com/th?id=OHR.FrogMonth_DE-DE7731658257_UHD.jpg) 
