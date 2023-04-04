@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-05 | [Männliche Birkhühner in Kuusamo, Finnland (© Markus Varesvuo/Minden Pictures)](https://global.bing.com/th?id=OHR.BlackGrouseLekking_DE-DE9275715227_UHD.jpg) 
+
 2023-04-04 | [Römische Brücke, Córdoba, Spanien (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.RomanBridge_DE-DE8880591809_UHD.jpg) 
 
 2023-04-03 | [Insel Helgoland, Schleswig-Holstein (© Iurii Buriak/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SchleswigHolsteinHelgoland_DE-DE2968840139_UHD.jpg) 
