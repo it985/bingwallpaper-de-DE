@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-07 | [Europäische Biberbabys, Finnland (© Danny Green/Minden Pictures)](https://global.bing.com/th?id=OHR.KitsAspen_DE-DE9335178847_UHD.jpg) 
+
 2023-04-06 | [Mondaufgang, Tucson, Arizona, USA (© Tim Murphy/Shutterstock)](https://global.bing.com/th?id=OHR.ArizonaPinkMoon_DE-DE9682915155_UHD.jpg) 
 
 2023-04-05 | [Männliche Birkhühner in Kuusamo, Finnland (© Markus Varesvuo/Minden Pictures)](https://global.bing.com/th?id=OHR.BlackGrouseLekking_DE-DE9275715227_UHD.jpg) 
