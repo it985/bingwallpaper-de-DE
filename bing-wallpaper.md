@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-11 | [Tatzelwurm Holzbrücke, Essing, (© Rüdiger Hess/geo-select FotoArt)](https://global.bing.com/th?id=OHR.Tatzlwurmbruecke_DE-DE0668402761_UHD.jpg) 
+
 2023-04-10 | [Elefanten im Amboseli-Nationalpark, Kenia (© Diana Robinson/Getty Images)](https://global.bing.com/th?id=OHR.ElephantTwins_DE-DE7828425452_UHD.jpg) 
 
 2023-04-09 | [Litauische dekorierte Ostereier (© fotomem/Getty Images)](https://global.bing.com/th?id=OHR.LithuanianEggs_DE-DE6834482239_UHD.jpg) 
