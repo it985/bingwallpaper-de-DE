@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-14 | [Wasserturm, Mannheim (© tichr/Getty Images)](https://global.bing.com/th?id=OHR.Mannheim_DE-DE1609561804_UHD.jpg) 
+
 2023-04-13 | [Hitsujiyama Park, Präfektur Saitama, Japan (© Takashi Images/Shutterstock)](https://global.bing.com/th?id=OHR.PhloxSubulata_DE-DE3543947931_UHD.jpg) 
 
 2023-04-12 | [Die Erde von der Internationalen Raumstation aus gesehen (© Tim Peake/ESA/NASA via Getty Images)](https://global.bing.com/th?id=OHR.EuropeFromISS_DE-DE2508678174_UHD.jpg) 
