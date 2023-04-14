@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-15 | [„Together” von Lorenzo Quinn, Große Pyramiden von Gizeh, Kairo, Ägypten (© Sima Diab/Getty Images)](https://global.bing.com/th?id=OHR.LorenzoQuinn_DE-DE4212033838_UHD.jpg) 
+
 2023-04-14 | [Wasserturm, Mannheim (© tichr/Getty Images)](https://global.bing.com/th?id=OHR.Mannheim_DE-DE1609561804_UHD.jpg) 
 
 2023-04-13 | [Hitsujiyama Park, Präfektur Saitama, Japan (© Takashi Images/Shutterstock)](https://global.bing.com/th?id=OHR.PhloxSubulata_DE-DE3543947931_UHD.jpg) 
