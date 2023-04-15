@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-16 | [Drachenfestival von Adelaide, Australien (© Andrey Moisseyev/Alamy)](https://global.bing.com/th?id=OHR.KiteDay_DE-DE5544963216_UHD.jpg) 
+
 2023-04-15 | [„Together” von Lorenzo Quinn, Große Pyramiden von Gizeh, Kairo, Ägypten (© Sima Diab/Getty Images)](https://global.bing.com/th?id=OHR.LorenzoQuinn_DE-DE4212033838_UHD.jpg) 
 
 2023-04-14 | [Wasserturm, Mannheim (© tichr/Getty Images)](https://global.bing.com/th?id=OHR.Mannheim_DE-DE1609561804_UHD.jpg) 
