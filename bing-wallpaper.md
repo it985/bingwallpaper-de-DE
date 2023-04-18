@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-19 | [Taiwanesische Yuhinas, Singvögel, Alishan Naturschutzgebiet, Taiwan (© Staffan Widstrand/Minden Pictures)](https://global.bing.com/th?id=OHR.TaiwanYuhina_DE-DE9622879308_UHD.jpg) 
+
 2023-04-18 | [Machu Picchu, Peru (© Dora Dalton/Getty Images)](https://global.bing.com/th?id=OHR.MPPUnesco_DE-DE9476422795_UHD.jpg) 
 
 2023-04-17 | [Haiku-Kunstinstallation, Kew Royal Botanic Gardens, London (© Guy Bell/Alamy Live News)](https://global.bing.com/th?id=OHR.OneThousandSprings_DE-DE6812123772_UHD.jpg) 
