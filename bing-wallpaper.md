@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-20 | [Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)](https://global.bing.com/th?id=OHR.MossyGrottoFalls_DE-DE9162170819_UHD.jpg) 
+
 2023-04-19 | [Taiwanesische Yuhinas, Singvögel, Alishan Naturschutzgebiet, Taiwan (© Staffan Widstrand/Minden Pictures)](https://global.bing.com/th?id=OHR.TaiwanYuhina_DE-DE9622879308_UHD.jpg) 
 
 2023-04-18 | [Machu Picchu, Peru (© Dora Dalton/Getty Images)](https://global.bing.com/th?id=OHR.MPPUnesco_DE-DE9476422795_UHD.jpg) 
