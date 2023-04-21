@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-22 | [Insel-Graufuchs im Channel-Islands Nationalpark, Kalifornien, USA (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_DE-DE8965516064_UHD.jpg) 
+
 2023-04-21 | [Procida, Kampanien Italien (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.ProcidaItaly_DE-DE8410608904_UHD.jpg) 
 
 2023-04-20 | [Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)](https://global.bing.com/th?id=OHR.MossyGrottoFalls_DE-DE9162170819_UHD.jpg) 
