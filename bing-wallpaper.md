@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-24 | [Weinkeller im Bayerischen Wald (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_DE-DE9737589595_UHD.jpg) 
+
 2023-04-23 | [Stadtbibliothek Stuttgart (© Axel Brunst/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.StuttgartPublicLibrary_DE-DE9376836854_UHD.jpg) 
 
 2023-04-22 | [Insel-Graufuchs im Channel-Islands Nationalpark, Kalifornien, USA (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_DE-DE8965516064_UHD.jpg) 
