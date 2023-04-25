@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-26 | [Jungvögel des Virginia-Uhus (© Michael Morse/Getty Images)](https://global.bing.com/th?id=OHR.GHOAudubonDay_DE-DE4254094306_UHD.jpg) 
+
 2023-04-24 | [Weinkeller im Bayerischen Wald (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_DE-DE9737589595_UHD.jpg) 
 
 2023-04-23 | [Stadtbibliothek Stuttgart (© Axel Brunst/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.StuttgartPublicLibrary_DE-DE9376836854_UHD.jpg) 
