@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-28 | [Mariposa Grove im Yosemite-Nationalpark, Kalifornien, USA (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.MariposaGrove_DE-DE6502000556_UHD.jpg) 
+
 2023-04-27 | [South Padre Island, Texas, USA (© Jeff R Clow/Getty Images)](https://global.bing.com/th?id=OHR.SouthPadre_DE-DE5975626528_UHD.jpg) 
 
 2023-04-26 | [Jungvögel des Virginia-Uhus (© Michael Morse/Getty Images)](https://global.bing.com/th?id=OHR.GHOAudubonDay_DE-DE4254094306_UHD.jpg) 
