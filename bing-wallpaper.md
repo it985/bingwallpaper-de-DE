@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-03 | [Gnus in der Masai Mara, Kenia (© Matt Polski/Getty Images)](https://global.bing.com/th?id=OHR.ThreeWildebeest_DE-DE0436671164_UHD.jpg) 
+
 2023-05-02 | [Jöriseen in den Silvretta Alpen, Schweiz (© Florin Baumann/Getty Images)](https://global.bing.com/th?id=OHR.KlostersSerneus_DE-DE9805698061_UHD.jpg) 
 
 2023-05-01 | [Biene im Sonnenblumenfeld bei Fresdorf (© Ralf Hirschberger/dpa-Zentralbild/dpa/Alamy Live News)](https://global.bing.com/th?id=OHR.SunflowerBee_DE-DE9415817741_UHD.jpg) 
