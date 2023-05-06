@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-07 | [Kegelrobbenwelpen, Lundy Island, England (© Henley Spiers/Minden Pictures)](https://global.bing.com/th?id=OHR.SealLaughing_DE-DE9050321655_UHD.jpg) 
+
 2023-05-06 | [Feuerwerk in Speyer Rheinland-Pfalz (© Janny2/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.RheininFlammen_DE-DE8169751630_UHD.jpg) 
 
 2023-05-05 | [Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)](https://global.bing.com/th?id=OHR.Popocatepetl_DE-DE8514604787_UHD.jpg) 
