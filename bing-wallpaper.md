@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-15 | [Morro Jable und Playa del Matorral, Fuerteventura, Kanarische Inseln, Spanien (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.MorroJable_DE-DE3676958507_UHD.jpg) 
+
 2023-05-14 | [Weißwedelhirsch-Ricke und neugeborenes Kitz, Montana, USA (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.OdocoileusVirginianus_DE-DE3260429830_UHD.jpg) 
 
 2023-05-13 | [Pelikane im Sonny Bono Salton Sea National Wildlife Refuge, Kalifornien (© David McNew/Getty Images)](https://global.bing.com/th?id=OHR.SonnyBonoPelicans_DE-DE2859602552_UHD.jpg) 
