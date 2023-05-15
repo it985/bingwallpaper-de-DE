@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-16 | [Kanu-Paddeln im Okefenokee National Wildlife Refuge, Georgia, USA (© Brad Beck/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmericanWetlands_DE-DE4161765877_UHD.jpg) 
+
 2023-05-15 | [Morro Jable und Playa del Matorral, Fuerteventura, Kanarische Inseln, Spanien (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.MorroJable_DE-DE3676958507_UHD.jpg) 
 
 2023-05-14 | [Weißwedelhirsch-Ricke und neugeborenes Kitz, Montana, USA (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.OdocoileusVirginianus_DE-DE3260429830_UHD.jpg) 
