@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-19 | [Sumatra-Nashorn, Nationalpark Way Kambas, Indonesien (© Cyril Ruoso/Minden Pictures)](https://global.bing.com/th?id=OHR.SumatranRhino_DE-DE8687965425_UHD.jpg) 
+
 2023-05-18 | [Wiedehopf füttert seine Jungen nach der Exkursion, Biosphärenreservat Mittelelbe, Sachsen-Anhalt (© imageBROKER/Martin Demmel/GettyImages)](https://global.bing.com/th?id=OHR.HoopoeFathersday_DE-DE8234010695_UHD.jpg) 
 
 2023-05-17 | [Natural Bridges State Park in Santa Cruz, Kalifornien (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CormorantBridge_DE-DE4541774493_UHD.jpg) 
