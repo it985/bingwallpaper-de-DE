@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-20 | [Europäische Honigbienen in Sheffield, England (© Deborah Vernon/Alamy)](https://global.bing.com/th?id=OHR.EuropeanHoneybee_DE-DE0450050435_UHD.jpg) 
+
 2023-05-19 | [Sumatra-Nashorn, Nationalpark Way Kambas, Indonesien (© Cyril Ruoso/Minden Pictures)](https://global.bing.com/th?id=OHR.SumatranRhino_DE-DE8687965425_UHD.jpg) 
 
 2023-05-18 | [Wiedehopf füttert seine Jungen nach der Exkursion, Biosphärenreservat Mittelelbe, Sachsen-Anhalt (© imageBROKER/Martin Demmel/GettyImages)](https://global.bing.com/th?id=OHR.HoopoeFathersday_DE-DE8234010695_UHD.jpg) 
