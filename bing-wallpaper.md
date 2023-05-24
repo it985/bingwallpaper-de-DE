@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-25 | [Das nordatlantische Inseldorf Saksun, Färöer (© miroslav_1/Getty Images)](https://global.bing.com/th?id=OHR.SaksunFaroe_DE-DE3088151760_UHD.jpg) 
+
 2023-05-24 | [Alte Festung auf der Insel Korfu, Griechenland (© Netfalls Remy Musser/Shutterstock)](https://global.bing.com/th?id=OHR.OldFortress_DE-DE2608011846_UHD.jpg) 
 
 2023-05-23 | [Schildkröte (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.WesternBoxTurtle_DE-DE2199819764_UHD.jpg) 
