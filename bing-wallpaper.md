@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-27 | [Pflanzenwelt in Namibia (© Fotofeeling/DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.AloeDichotomum_DE-DE4474224527_UHD.jpg) 
+
 2023-05-26 | [Wat Sri Sawai im historischen Park von Sukhothai, Thailand (© Casper1774 Studio/Shutterstock)](https://global.bing.com/th?id=OHR.WatSriSawai_DE-DE3655938171_UHD.jpg) 
 
 2023-05-25 | [Das nordatlantische Inseldorf Saksun, Färöer (© miroslav_1/Getty Images)](https://global.bing.com/th?id=OHR.SaksunFaroe_DE-DE3088151760_UHD.jpg) 
