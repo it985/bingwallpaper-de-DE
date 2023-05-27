@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-28 | [Tegalalang-Terrassenbetriebe in Ubud, Indonesien (© Cavan Images/Adobe Stock)](https://global.bing.com/th?id=OHR.TegallalangTerrace_DE-DE5316253421_UHD.jpg) 
+
 2023-05-27 | [Pflanzenwelt in Namibia (© Fotofeeling/DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.AloeDichotomum_DE-DE4474224527_UHD.jpg) 
 
 2023-05-26 | [Wat Sri Sawai im historischen Park von Sukhothai, Thailand (© Casper1774 Studio/Shutterstock)](https://global.bing.com/th?id=OHR.WatSriSawai_DE-DE3655938171_UHD.jpg) 
