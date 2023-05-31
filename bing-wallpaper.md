@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-01 | [Luftaufnahme vom Great Barrier Reef, Australien (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_DE-DE8258767284_UHD.jpg) 
+
 2023-05-31 | [Seeotterwelpe, Prince-William-Sund, Alaska (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_DE-DE7818224728_UHD.jpg) 
 
 2023-05-30 | [Playa del Amor, Marietas-Inseln, Mexiko (© ferrantraite/Getty Images)](https://global.bing.com/th?id=OHR.HiddenBeach_DE-DE7094795169_UHD.jpg) 
