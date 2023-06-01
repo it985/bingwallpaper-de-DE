@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-02 | [Spießbock (Oryx gazella) in den Sanddünen, Namibia (© Sergey Gorshkov/Minden)](https://global.bing.com/th?id=OHR.GemsbokNamibia_DE-DE3132541250_UHD.jpg) 
+
 2023-06-01 | [Luftaufnahme vom Great Barrier Reef, Australien (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_DE-DE8258767284_UHD.jpg) 
 
 2023-05-31 | [Seeotterwelpe, Prince-William-Sund, Alaska (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_DE-DE7818224728_UHD.jpg) 
