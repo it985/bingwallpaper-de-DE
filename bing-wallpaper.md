@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-03 | [South Kaibab Trail im Grand-Canyon-Nationalpark, Arizona, USA (© Roman Khomlyak/Getty Images)](https://global.bing.com/th?id=OHR.SouthKaibabTrail_DE-DE3610470806_UHD.jpg) 
+
 2023-06-02 | [Spießbock (Oryx gazella) in den Sanddünen, Namibia (© Sergey Gorshkov/Minden)](https://global.bing.com/th?id=OHR.GemsbokNamibia_DE-DE3132541250_UHD.jpg) 
 
 2023-06-01 | [Luftaufnahme vom Great Barrier Reef, Australien (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_DE-DE8258767284_UHD.jpg) 
