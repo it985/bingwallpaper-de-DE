@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-05 | [Priscilla the Parrotfish, Como Park, St. Paul, Minnesota, USA (© Michael Siluk/UCG/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.PlasticParrotfish_DE-DE7832208174_UHD.jpg) 
+
 2023-06-04 | [Schwarzer Sandstrand, Wai'anapanapa State Park, Maui, Hawaii, USA (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.MauiBeach_DE-DE6881454131_UHD.jpg) 
 
 2023-06-03 | [South Kaibab Trail im Grand-Canyon-Nationalpark, Arizona, USA (© Roman Khomlyak/Getty Images)](https://global.bing.com/th?id=OHR.SouthKaibabTrail_DE-DE3610470806_UHD.jpg) 
