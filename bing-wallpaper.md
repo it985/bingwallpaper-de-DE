@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-08 | [Buckelwal (© Philip Thurston/Getty Images)](https://global.bing.com/th?id=OHR.PlayfulHumpback_DE-DE4104793691_UHD.jpg) 
+
 2023-06-07 | [Pueblo Bonito, Chaco Culture National Historical Park, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ChacoCulture_DE-DE3796177727_UHD.jpg) 
 
 2023-06-06 | [Küste von Étretat, Normandie, Frankreich (© MarcelloLand/Getty Images)](https://global.bing.com/th?id=OHR.CliffsEtretat_DE-DE8092248382_UHD.jpg) 
