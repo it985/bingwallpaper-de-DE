@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-10 | [Kathedrale von Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.PortugalDay_DE-DE4854836897_UHD.jpg) 
+
 2023-06-09 | [Kappadokien, Türkei (© Anton Petrus/Getty Images)](https://global.bing.com/th?id=OHR.BalloonsTurkey_DE-DE4432664066_UHD.jpg) 
 
 2023-06-08 | [Buckelwal (© Philip Thurston/Getty Images)](https://global.bing.com/th?id=OHR.PlayfulHumpback_DE-DE4104793691_UHD.jpg) 
