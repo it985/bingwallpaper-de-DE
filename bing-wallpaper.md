@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-16 | [Echte Karettschildkröte schwimmt in der Nähe von Aka-jima, Okinawa, Japan (© Robert Mallon/Getty Images)](https://global.bing.com/th?id=OHR.HawksbillTurtle_DE-DE9802126687_UHD.jpg) 
+
 2023-06-15 | [Synchrone Leuchtkäfer, Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© Floris Van Bruegel/Minden Pictures)](https://global.bing.com/th?id=OHR.SmokyFireflies_DE-DE9996840868_UHD.jpg) 
 
 2023-06-14 | [Die Stadt Passau, die sich in der Donau spiegelt (© Scott Wilson/Alamy)](https://global.bing.com/th?id=OHR.PassauSunsetJune_DE-DE9305502094_UHD.jpg) 
