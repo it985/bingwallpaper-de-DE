@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-19 | [Rehkitz im Gras in der Normandie, Frankreich (© Gerard Lacz/Minden)](https://global.bing.com/th?id=OHR.Fawn_DE-DE1059166078_UHD.jpg) 
+
 2023-06-18 | [Flussseeschwalbenvater mit Küken, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://global.bing.com/th?id=OHR.TernFather_DE-DE0753405275_UHD.jpg) 
 
 2023-06-17 | [San Diego, Kalifornien, USA (© Brandon Colbert Photography/Getty Images)](https://global.bing.com/th?id=OHR.SurfSanDiego_DE-DE0345949347_UHD.jpg) 
