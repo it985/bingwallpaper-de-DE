@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-26 | [Schloss Villandry und sein Garten, Loire-Tal, Frankreich (© VLADJ55/Shutterstock)](https://global.bing.com/th?id=OHR.VillandryGarden_DE-DE6626045641_UHD.jpg) 
+
 2023-06-25 | [Khazne al-Firaun, Petra, Jordanien (© WitthayaP/Shutterstock)](https://global.bing.com/th?id=OHR.PetraTreasury_DE-DE6339957030_UHD.jpg) 
 
 2023-06-24 | [Beleuchteter Innenraum, Sony Center, Berlin (© travelstock44/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SonyCenterDome_DE-DE4567605388_UHD.jpg) 
