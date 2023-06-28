@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-29 | [Banyak-Inseln, Sumatra, Indonesien (© fbxx/Getty Imagesz)](https://global.bing.com/th?id=OHR.BanyakIslands_DE-DE6241631222_UHD.jpg) 
+
 2023-06-28 | [Regenbogenfahnen am Münchner Rathaus (© FooTToo/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.PrideMunich_DE-DE6752546135_UHD.jpg) 
 
 2023-06-27 | [Sedona, Arizona, USA (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_DE-DE6870001404_UHD.jpg) 
