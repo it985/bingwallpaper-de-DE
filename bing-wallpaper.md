@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-02 | [Aquädukt Veluwemeer, Niederlande (© Frolova_Elena/Getty Images)](https://global.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg) 
+
 2023-07-01 | [Radfahrer der Tour de France überqueren den Pont du Gard, Frankreich (© Gonzalo Fuentes/Reuters)](https://global.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg) 
 
 2023-06-30 | [Fußgängerbrücke über den See zu den Stelzenhäusern, Unteruhldingen, Baden-Württemberg (© Harald Nachtmann/Getty Images)](https://global.bing.com/th?id=OHR.Footbridge_DE-DE3295548042_UHD.jpg) 
