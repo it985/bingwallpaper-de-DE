@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-06 | [Südliche Felsenpinguine, Falklandinseln (© Tony Beck/Getty Images)](https://global.bing.com/th?id=OHR.KissingPenguins_DE-DE4462202063_UHD.jpg) 
+
 2023-07-05 | [Strand von Porto Timoni, Korfu, Griechenland (© nantonov/Getty Images)](https://global.bing.com/th?id=OHR.CorfuBeach_DE-DE3578833784_UHD.jpg) 
 
 2023-07-04 | [Grassland-Nationalpark, Saskatchewan, Kanada (© Robert Postma/Getty Images)](https://global.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_DE-DE4287828345_UHD.jpg) 
