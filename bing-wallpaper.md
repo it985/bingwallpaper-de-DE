@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-10 | [Lavendelfeld, Somerset, England (© Doug Chinnery/Getty Images)](https://global.bing.com/th?id=OHR.SomersetLavender_DE-DE4562523313_UHD.jpg) 
+
 2023-07-09 | [Moselmäander bei Kröv, Deutschland (© Jorg Greuel/Getty Images)](https://global.bing.com/th?id=OHR.MoselleRiver_DE-DE4111519220_UHD.jpg) 
 
 2023-07-08 | [Mildred B. Cooper Gedächtniskapelle, Bella Vista, Arkansas, USA (© Eddie Brady/Getty Images)](https://global.bing.com/th?id=OHR.CooperChapel_DE-DE3457658081_UHD.jpg) 
