@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-15 | [Castelmezzano, Basilikata, Italien (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.CastelmazzanoSunrise_DE-DE1863686096_UHD.jpg) 
+
 2023-07-14 | [Botanische Nacht im Botanischen Garten, Berlin (© Felipe Trueba/EPA-EFE/Shutterstock)](https://global.bing.com/th?id=OHR.BerlinBotanicGarden_DE-DE9639531635_UHD.jpg) 
 
 2023-07-13 | [Zhangye Danxia-National-Geopark, Gansu, China (© TONNAJA/Getty Images)](https://global.bing.com/th?id=OHR.ZhangyeGeopark_DE-DE5899519482_UHD.jpg) 
