@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-17 | [Cloughoughter Castle in Lough Oughter, Grafschaft Cavan, Irland (© 4H4 PH/Shutterstock)](https://global.bing.com/th?id=OHR.CavanCastle_DE-DE6494327966_UHD.jpg) 
+
 2023-07-16 | [Bear Hole Brook, Catskill Mountains, New York, USA (© GummyBone/Getty Images)](https://global.bing.com/th?id=OHR.BearHoleBrook_DE-DE2188563050_UHD.jpg) 
 
 2023-07-15 | [Castelmezzano, Basilikata, Italien (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.CastelmazzanoSunrise_DE-DE1863686096_UHD.jpg) 
