@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-18 | [Hintersee, Ramsau, Bayern (© boule13/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.HinterseeLake_DE-DE7814491503_UHD.jpg) 
+
 2023-07-17 | [Cloughoughter Castle in Lough Oughter, Grafschaft Cavan, Irland (© 4H4 PH/Shutterstock)](https://global.bing.com/th?id=OHR.CavanCastle_DE-DE6494327966_UHD.jpg) 
 
 2023-07-16 | [Bear Hole Brook, Catskill Mountains, New York, USA (© GummyBone/Getty Images)](https://global.bing.com/th?id=OHR.BearHoleBrook_DE-DE2188563050_UHD.jpg) 
