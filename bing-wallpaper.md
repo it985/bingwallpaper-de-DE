@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-19 | [Mondsichel-See bei Dunhuang, Provinz Gansu, China (© R7 Photo/Shutterstock)](https://global.bing.com/th?id=OHR.CrescentLake_DE-DE8242046446_UHD.jpg) 
+
 2023-07-18 | [Hintersee, Ramsau, Bayern (© boule13/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.HinterseeLake_DE-DE7814491503_UHD.jpg) 
 
 2023-07-17 | [Cloughoughter Castle in Lough Oughter, Grafschaft Cavan, Irland (© 4H4 PH/Shutterstock)](https://global.bing.com/th?id=OHR.CavanCastle_DE-DE6494327966_UHD.jpg) 
