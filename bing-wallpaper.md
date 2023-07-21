@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-22 | [Hängematten-Camping in einer Sumpfzypresse, Florida, USA (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockDay_DE-DE0611362682_UHD.jpg) 
+
 2023-07-21 | [Storseisund-Brücke, Atlantikstraße, Norwegen (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.BridgeNorway_DE-DE0132914510_UHD.jpg) 
 
 2023-07-20 | [Der Mond vom Orion-Raumschiff der Artemis-Mission der NASA aus gesehen (© NASA)](https://global.bing.com/th?id=OHR.MoonDayArtemis_DE-DE8692746129_UHD.jpg) 
