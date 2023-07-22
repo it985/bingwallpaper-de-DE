@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-23 | [Edinburgh Teeplantage, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.TeaEstate_DE-DE1060002531_UHD.jpg) 
+
 2023-07-22 | [Hängematten-Camping in einer Sumpfzypresse, Florida, USA (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockDay_DE-DE0611362682_UHD.jpg) 
 
 2023-07-21 | [Storseisund-Brücke, Atlantikstraße, Norwegen (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.BridgeNorway_DE-DE0132914510_UHD.jpg) 
