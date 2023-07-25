@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-26 | [Jubail Mangrovenpark in Abu Dhabi, Vereinigte Arabische Emirate  (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.MangrovePark_DE-DE4871717543_UHD.jpg) 
+
 2023-07-25 | [Lagune von Torrevieja, Alicante, Spanien (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.LasLagunas_DE-DE3855429319_UHD.jpg) 
 
 2023-07-24 | [Zebras im Tarangire-Nationalpark, Tansania (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.ZebraCousins_DE-DE3138525092_UHD.jpg) 
