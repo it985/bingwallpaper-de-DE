@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-27 | [Arc de Triomphe du Carrousel und Louvre-Pyramide, Paris, Frankreich (© Jon Hicks/Getty Images)](https://global.bing.com/th?id=OHR.ParisLouvre_DE-DE5257650746_UHD.jpg) 
+
 2023-07-26 | [Jubail Mangrovenpark in Abu Dhabi, Vereinigte Arabische Emirate  (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.MangrovePark_DE-DE4871717543_UHD.jpg) 
 
 2023-07-25 | [Lagune von Torrevieja, Alicante, Spanien (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.LasLagunas_DE-DE3855429319_UHD.jpg) 
