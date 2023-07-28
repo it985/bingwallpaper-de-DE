@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-29 | [Königstiger, Ranthambore-Nationalpark, Indien (© Andy Rouse/Minden Pictures)](https://global.bing.com/th?id=OHR.TigerIndia_DE-DE7523185756_UHD.jpg) 
+
 2023-07-28 | [San-Blas-Inseln, Panama (© bgremler/Shutterstock)](https://global.bing.com/th?id=OHR.SanBlasIslands_DE-DE7177823462_UHD.jpg) 
 
 2023-07-27 | [Arc de Triomphe du Carrousel und Louvre-Pyramide, Paris, Frankreich (© Jon Hicks/Getty Images)](https://global.bing.com/th?id=OHR.ParisLouvre_DE-DE5257650746_UHD.jpg) 
