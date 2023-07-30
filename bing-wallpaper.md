@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-31 | [Felsenhaus, Hocking Hills State Park, Ohio, USA (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.RockHouse_DE-DE8842375533_UHD.jpg) 
+
 2023-07-30 | [Zwei Jungfüchse spielen auf einer Wiese, Deutschland (© Reibertb/Getty Images)](https://global.bing.com/th?id=OHR.FoxCubs_DE-DE0132480419_UHD.jpg) 
 
 2023-07-29 | [Königstiger, Ranthambore-Nationalpark, Indien (© Andy Rouse/Minden Pictures)](https://global.bing.com/th?id=OHR.TigerIndia_DE-DE7523185756_UHD.jpg) 
