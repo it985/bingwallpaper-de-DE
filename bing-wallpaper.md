@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-02 | [Sandsteinfelsen im Capitol-Reef-Nationalpark, Utah, USA (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CapitolButte_DE-DE2292807711_UHD.jpg) 
+
 2023-08-01 | [Mount Foraker im Denali-Nationalpark, Alaska, USA (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DenaliClimber_DE-DE2152718448_UHD.jpg) 
 
 2023-07-31 | [Felsenhaus, Hocking Hills State Park, Ohio, USA (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.RockHouse_DE-DE8842375533_UHD.jpg) 
