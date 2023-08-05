@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-06 | [Kagami-ike (Spiegelteich), Nagano, Japan (© Shoji Fujita/Getty Images)](https://global.bing.com/th?id=OHR.NaganoPond_DE-DE6341491566_UHD.jpg) 
+
 2023-08-05 | [Rakotzbrücke in Kromlau, Landkreis Görlitz, Sachsen (© DieterMeyrl/Getty Images)](https://global.bing.com/th?id=OHR.Bogenbruecke_DE-DE4748287145_UHD.jpg) 
 
 2023-08-04 | [Tintern Abbey, Wales (© matthibcn/Getty Images)](https://global.bing.com/th?id=OHR.GothicRuins_DE-DE5741219714_UHD.jpg) 
