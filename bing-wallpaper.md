@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-08 | [Autobahnen in Taipeh, Taiwan (© Tavarius/Shutterstock)](https://global.bing.com/th?id=OHR.InfinityTaipei_DE-DE3086691041_UHD.jpg) 
+
 2023-08-07 | [Bodie Island Leuchtturm, Nags Head, North Carolina, USA (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_DE-DE6827272449_UHD.jpg) 
 
 2023-08-06 | [Kagami-ike (Spiegelteich), Nagano, Japan (© Shoji Fujita/Getty Images)](https://global.bing.com/th?id=OHR.NaganoPond_DE-DE6341491566_UHD.jpg) 
