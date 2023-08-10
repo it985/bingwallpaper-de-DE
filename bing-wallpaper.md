@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-11 | [Schwimmbad „Gateway“ im Jupiter Artland Skulpturenpark, Edinburgh, Schottland (© Owen Humphreys/PA Images/Alamy)](https://global.bing.com/th?id=OHR.JupiterArtland_DE-DE5348039414_UHD.jpg) 
+
 2023-08-10 | [Ein Löwe in der Masai Mara, Kenia (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WorldLionDay_DE-DE3554846602_UHD.jpg) 
 
 2023-08-09 | [Indigenes Kunstwerk, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australien (© Robert Wyatt/Alamy)](https://global.bing.com/th?id=OHR.BathurstArt_DE-DE4645187726_UHD.jpg) 
