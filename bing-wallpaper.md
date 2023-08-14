@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-15 | [Piazza IX Aprile, Taormina, Sizilien, Italien (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_DE-DE8419551303_UHD.jpg) 
+
 2023-08-14 | [Winziger Gecko auf einem Blatt (© Darren Greenwood/Alamy)](https://global.bing.com/th?id=OHR.GeckoLeaf_DE-DE4962242686_UHD.jpg) 
 
 2023-08-13 | [Perseiden-Meteorstrom, Cottonwood Canyon State Park, Oregon, USA (© Joshua Meador/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PerseidsOregon_DE-DE7453606880_UHD.jpg) 
