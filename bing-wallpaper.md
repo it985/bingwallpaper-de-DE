@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-17 | [Doppelhornvogel, Nationalpark Khao Yai, Thailand (© kajornyot wildlife photography/Shutterstock)](https://global.bing.com/th?id=OHR.BucerosBicornis_DE-DE7282207548_UHD.jpg) 
+
 2023-08-16 | [Der Overseas Highway, Florida, USA (© Evgeny Vasenev/Cavan Images)](https://global.bing.com/th?id=OHR.KeyWestBridge_DE-DE0913922445_UHD.jpg) 
 
 2023-08-15 | [Piazza IX Aprile, Taormina, Sizilien, Italien (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_DE-DE8419551303_UHD.jpg) 
