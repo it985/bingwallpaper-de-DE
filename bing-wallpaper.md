@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-19 | [Ein Eichhörnchen schaut in das Objektiv einer Kamera (© Alfredo Piedrafita/Getty Images)](https://global.bing.com/th?id=OHR.CameraSquirrel_DE-DE9987181480_UHD.jpg) 
+
 2023-08-18 | [Altstadt und die Trave, Lübeck, Schleswig-Holstein (© Harald Nachtmann/Getty Images)](https://global.bing.com/th?id=OHR.LuebeckRiverTrave_DE-DE9748336863_UHD.jpg) 
 
 2023-08-17 | [Doppelhornvogel, Nationalpark Khao Yai, Thailand (© kajornyot wildlife photography/Shutterstock)](https://global.bing.com/th?id=OHR.BucerosBicornis_DE-DE7282207548_UHD.jpg) 
