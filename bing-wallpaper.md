@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-20 | [Start Point Leuchtturm, South Devon, England (© Guy Edwardes/Minden Pictures)](https://global.bing.com/th?id=OHR.StartPointLight_DE-DE0396922418_UHD.jpg) 
+
 2023-08-19 | [Ein Eichhörnchen schaut in das Objektiv einer Kamera (© Alfredo Piedrafita/Getty Images)](https://global.bing.com/th?id=OHR.CameraSquirrel_DE-DE9987181480_UHD.jpg) 
 
 2023-08-18 | [Altstadt und die Trave, Lübeck, Schleswig-Holstein (© Harald Nachtmann/Getty Images)](https://global.bing.com/th?id=OHR.LuebeckRiverTrave_DE-DE9748336863_UHD.jpg) 
