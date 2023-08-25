@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-26 | [Berliner Dom und die Museumsinsel, Berlin (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumIsland_DE-DE4387476793_UHD.jpg) 
+
 2023-08-25 | [Yellowstone-Wasserfälle, Yellowstone-Nationalpark, Wyoming, USA (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.YellowstoneFalls_DE-DE1411382450_UHD.jpg) 
 
 2023-08-24 | [Rothenburg ob der Tauber, Bayern (© RudyBalasko/Getty images)](https://global.bing.com/th?id=OHR.Rothenburg_DE-DE4473988818_UHD.jpg) 
