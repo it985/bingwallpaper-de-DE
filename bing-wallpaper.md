@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-27 | [Seongsan Ilchulbong, Insel Jejudo, Südkorea (© Quynh Anh Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.JejuIsland_DE-DE4817558281_UHD.jpg) 
+
 2023-08-26 | [Berliner Dom und die Museumsinsel, Berlin (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumIsland_DE-DE4387476793_UHD.jpg) 
 
 2023-08-25 | [Yellowstone-Wasserfälle, Yellowstone-Nationalpark, Wyoming, USA (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.YellowstoneFalls_DE-DE1411382450_UHD.jpg) 
