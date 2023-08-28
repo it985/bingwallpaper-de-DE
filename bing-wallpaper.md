@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-29 | [„Avatar-Berge“, Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_DE-DE4930608814_UHD.jpg) 
+
 2023-08-28 | [Festung Lovrijenac, Dubrovnik, Kroatien (© Benny Marty/Shutterstock)](https://global.bing.com/th?id=OHR.DubrovnikHarbor_DE-DE5532688724_UHD.jpg) 
 
 2023-08-27 | [Seongsan Ilchulbong, Insel Jejudo, Südkorea (© Quynh Anh Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.JejuIsland_DE-DE4817558281_UHD.jpg) 
