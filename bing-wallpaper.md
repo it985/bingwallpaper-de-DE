@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-30 | [Walhai, Ningaloo-Riff, Westaustralien (© Jason Edwards/Getty Images)](https://global.bing.com/th?id=OHR.NingalooShark_DE-DE6573151950_UHD.jpg) 
+
 2023-08-29 | [„Avatar-Berge“, Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_DE-DE4930608814_UHD.jpg) 
 
 2023-08-28 | [Festung Lovrijenac, Dubrovnik, Kroatien (© Benny Marty/Shutterstock)](https://global.bing.com/th?id=OHR.DubrovnikHarbor_DE-DE5532688724_UHD.jpg) 
