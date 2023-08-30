@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-31 | [Köpfe des Heiligen Cassius und Florentius vor dem Bonner Münster, Bonn (© Peter Unger/Getty images)](https://global.bing.com/th?id=OHR.CassiusFlorentius_DE-DE8060490789_UHD.jpg) 
+
 2023-08-30 | [Walhai, Ningaloo-Riff, Westaustralien (© Jason Edwards/Getty Images)](https://global.bing.com/th?id=OHR.NingalooShark_DE-DE6573151950_UHD.jpg) 
 
 2023-08-29 | [„Avatar-Berge“, Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_DE-DE4930608814_UHD.jpg) 
