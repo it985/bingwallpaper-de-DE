@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-01 | [Truthahnschwanzpilz, Brevard, North Carolina, USA (© Bill Gozansky/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TurkeyTailMush_DE-DE7496636357_UHD.jpg) 
+
 2023-08-31 | [Köpfe des Heiligen Cassius und Florentius vor dem Bonner Münster, Bonn (© Peter Unger/Getty images)](https://global.bing.com/th?id=OHR.CassiusFlorentius_DE-DE8060490789_UHD.jpg) 
 
 2023-08-30 | [Walhai, Ningaloo-Riff, Westaustralien (© Jason Edwards/Getty Images)](https://global.bing.com/th?id=OHR.NingalooShark_DE-DE6573151950_UHD.jpg) 
