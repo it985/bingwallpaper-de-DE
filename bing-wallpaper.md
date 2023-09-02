@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-03 | [Luftaufnahme von Manhattan, New York City, USA (© Wojtek Zagorski/Getty Images)](https://global.bing.com/th?id=OHR.ManhattanAerial_DE-DE3168422076_UHD.jpg) 
+
 2023-09-02 | [Allenkolibri, Santa Cruz, Kalifornien, USA (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_DE-DE8472975008_UHD.jpg) 
 
 2023-09-01 | [Truthahnschwanzpilz, Brevard, North Carolina, USA (© Bill Gozansky/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TurkeyTailMush_DE-DE7496636357_UHD.jpg) 
