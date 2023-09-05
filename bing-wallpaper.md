@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-06 | [Alter venezianischer Hafen, Rethymno, Kreta, Griechenland (© Gatsi/Getty Images)](https://global.bing.com/th?id=OHR.CreteHarbor_DE-DE5407686384_UHD.jpg) 
+
 2023-09-05 | [Berg Segla, Senja Insel, Troms und Finnmark, Norwegen (© imageBROKER/Moritz Wolf/Getty Images)](https://global.bing.com/th?id=OHR.MountSegla_DE-DE4409695618_UHD.jpg) 
 
 2023-09-04 | [Sümpfe von Bourges, Frankreich (© Tuul & Bruno Morandi/Getty Images)](https://global.bing.com/th?id=OHR.BourgesMarsh_DE-DE3538379611_UHD.jpg) 
