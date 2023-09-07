@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-08 | [Georgianisches Wohnhaus, The Circus Bath, Somerset, England (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.BathCircus_DE-DE5061679913_UHD.jpg) 
+
 2023-09-07 | [Der Reichstag unter einem Sternenhimmel, Berlin (© MarioGuti/Getty Images)](https://global.bing.com/th?id=OHR.ReichstagBeiNacht_DE-DE5694677012_UHD.jpg) 
 
 2023-09-06 | [Alter venezianischer Hafen, Rethymno, Kreta, Griechenland (© Gatsi/Getty Images)](https://global.bing.com/th?id=OHR.CreteHarbor_DE-DE5407686384_UHD.jpg) 
