@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-11 | [Sonnenaufgang über den Weinbergen in Médoc, Frankreich (© Esperanza33/Getty Images)](https://global.bing.com/th?id=OHR.MarathonMedoc_DE-DE0778851579_UHD.jpg) 
+
 2023-09-10 | [Walrosspaar auf See in Svalbard, Norwegen (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_DE-DE0040950274_UHD.jpg) 
 
 2023-09-09 | [Wat Chai Watthanaram, Historischer Park von Ayutthaya, Thailand (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_DE-DE9492204311_UHD.jpg) 
