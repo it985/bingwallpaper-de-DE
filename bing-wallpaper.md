@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-12 | [Nordsee bei Sonnenuntergang, Norddorf, Insel Amrum, Deutschland (© Frederick Doerschem/Getty Images)](https://global.bing.com/th?id=OHR.NorthSeaStairs_DE-DE3382163703_UHD.jpg) 
+
 2023-09-11 | [Sonnenaufgang über den Weinbergen in Médoc, Frankreich (© Esperanza33/Getty Images)](https://global.bing.com/th?id=OHR.MarathonMedoc_DE-DE0778851579_UHD.jpg) 
 
 2023-09-10 | [Walrosspaar auf See in Svalbard, Norwegen (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_DE-DE0040950274_UHD.jpg) 
