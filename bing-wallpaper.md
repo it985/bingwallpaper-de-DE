@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-15 | [Luftaufnahme von Köln (© Romas_Photo/Shutterstock)](https://global.bing.com/th?id=OHR.AerialCologne_DE-DE6638991328_UHD.jpg) 
+
 2023-09-14 | [Przewalski-Pferde, Nationalpark Chustain Nuruu, Mongolei (© Ondrej Prosicky/Shutterstock)](https://global.bing.com/th?id=OHR.MongoliaHorses_DE-DE4992384095_UHD.jpg) 
 
 2023-09-13 | [Tempel auf dem Hemakuta-Gebirge, Hampi, Karnataka, Indien (© Images of india/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.HemakutaHill_DE-DE2402524948_UHD.jpg) 
