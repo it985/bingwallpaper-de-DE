@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-17 | [Vielfarbentodi, Alexander-von-Humboldt-Nationalpark, Kuba (© Bruno D'Amicis/Minden Pictures)](https://global.bing.com/th?id=OHR.CubanTody_DE-DE8542598137_UHD.jpg) 
+
 2023-09-16 | [Lederhosen und Tradition, Oktoberfest auf der Theresienwiese in München (© FooTToo/Getty Images)](https://global.bing.com/th?id=OHR.OktoberfestBrassBand_DE-DE6535043925_UHD.jpg) 
 
 2023-09-15 | [Luftaufnahme von Köln (© Romas_Photo/Shutterstock)](https://global.bing.com/th?id=OHR.AerialCologne_DE-DE6638991328_UHD.jpg) 
