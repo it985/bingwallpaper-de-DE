@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-20 | [Römisch inspiriertes Aquädukt, Arkadia Park, Polen (© PATSTOCK/Getty Images)](https://global.bing.com/th?id=OHR.ArkadiaPark_DE-DE5332465806_UHD.jpg) 
+
 2023-09-19 | [Splügenpass, Graubünden, Schweiz (© Roberto Moiola/Getty Images)](https://global.bing.com/th?id=OHR.SplugenPass_DE-DE9394174285_UHD.jpg) 
 
 2023-09-18 | [Milchstraße über dem Naturpark Südwest-Alentejo, Portugal (© Daniel Garrido/Getty Images)](https://global.bing.com/th?id=OHR.MilkyWayPortugal_DE-DE4795035299_UHD.jpg) 
