@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-22 | [Zwei männliche Breitmaulnashörner, Shamwari Private Game Reserve, Südafrika (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_DE-DE5605786066_UHD.jpg) 
+
 2023-09-21 | [Im Inneren des Nobel-Friedenszentrums, Oslo, Norwegen (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_DE-DE5677760025_UHD.jpg) 
 
 2023-09-20 | [Römisch inspiriertes Aquädukt, Arkadia Park, Polen (© PATSTOCK/Getty Images)](https://global.bing.com/th?id=OHR.ArkadiaPark_DE-DE5332465806_UHD.jpg) 
