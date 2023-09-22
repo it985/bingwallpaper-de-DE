@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-23 | [Cottonwood-Bäume und roter Sandstein in der Coyote Gulch, Glen Canyon National Recreation Area, Utah, USA (© Stephen Matera/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CottonwoodCanyon_DE-DE6400641102_UHD.jpg) 
+
 2023-09-22 | [Zwei männliche Breitmaulnashörner, Shamwari Private Game Reserve, Südafrika (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_DE-DE5605786066_UHD.jpg) 
 
 2023-09-21 | [Im Inneren des Nobel-Friedenszentrums, Oslo, Norwegen (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_DE-DE5677760025_UHD.jpg) 
