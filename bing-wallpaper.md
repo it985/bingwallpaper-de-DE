@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-26 | [Venice Beach Skatepark bei Sonnenuntergang, Los Angeles, Kalifornien (© EXTREME-PHOTOGRAPHER/Getty Images)](https://global.bing.com/th?id=OHR.VeniceSkatePark_DE-DE8747558939_UHD.jpg) 
+
 2023-09-25 | [Seeotter in der Bartlett-Bucht, Glacier-Bay-Nationalpark, Alaska, USA (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GlacierBayOtter_DE-DE8272833767_UHD.jpg) 
 
 2023-09-24 | [Berlin Marathon Skyline mit Sonnenlicht, Berlin (© Matthias Makarinus/Getty Images)](https://global.bing.com/th?id=OHR.BerlinMarathon_DE-DE4277844553_UHD.jpg) 
