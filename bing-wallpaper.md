@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-28 | [Containerschiff in der Nähe eines Handelshafens in Thailand (© Suriyapong Thongsawang/Getty Images)](https://global.bing.com/th?id=OHR.MaritimeDay_DE-DE9625425397_UHD.jpg) 
+
 2023-09-27 | [Via Krupp, Capri, Italien (© Mikolaj Niemczewski/Shutterstock)](https://global.bing.com/th?id=OHR.CapriKrupp_DE-DE4606855318_UHD.jpg) 
 
 2023-09-26 | [Venice Beach Skatepark bei Sonnenuntergang, Los Angeles, Kalifornien (© EXTREME-PHOTOGRAPHER/Getty Images)](https://global.bing.com/th?id=OHR.VeniceSkatePark_DE-DE8747558939_UHD.jpg) 
