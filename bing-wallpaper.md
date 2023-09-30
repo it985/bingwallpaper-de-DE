@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-01 | [Der Bleder See, von Osojnica aus bei Sonnenaufgang gesehen, Slowenien (© Rasica/Getty Images)](https://global.bing.com/th?id=OHR.LakeBledSunrise_DE-DE0873272145_UHD.jpg) 
+
 2023-09-30 | [Herbstfarben im Shenandoah-Nationalpark, Virginia, USA (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.ShenandoahFoliage_DE-DE6908193483_UHD.jpg) 
 
 2023-09-29 | [Jiaxiu-Pagode bei Vollmond, Guiyang, Provinz Guizhou, China (© Wang Yukun/Getty Images)](https://global.bing.com/th?id=OHR.GuiyangMoon_DE-DE0511223733_UHD.jpg) 
