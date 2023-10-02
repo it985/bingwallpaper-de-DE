@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-03 | [Berliner Mauer (© frankpeters/Getty Images)](https://global.bing.com/th?id=OHR.GermanFlagWall_DE-DE4359380085_UHD.jpg) 
+
 2023-10-02 | [Fondation Louis Vuitton in Bois de Boulogne, Paris, Frankreich (© Atlantide Phototravel/Getty Images)](https://global.bing.com/th?id=OHR.VuittonFoundation_DE-DE1392865865_UHD.jpg) 
 
 2023-10-01 | [Der Bleder See, von Osojnica aus bei Sonnenaufgang gesehen, Slowenien (© Rasica/Getty Images)](https://global.bing.com/th?id=OHR.LakeBledSunrise_DE-DE0873272145_UHD.jpg) 
