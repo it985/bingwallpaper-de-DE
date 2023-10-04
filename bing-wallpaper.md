@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-05 | [Eselspinguine, Antarktis (© Art Wolfe/Getty Images)](https://global.bing.com/th?id=OHR.GentooJump_DE-DE4652019174_UHD.jpg) 
+
 2023-10-04 | [Junge Sterne, die sich im Tarantelnebel bilden, James-Webb-Weltraumteleskop (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://global.bing.com/th?id=OHR.TarantulaNebula_DE-DE2492434052_UHD.jpg) 
 
 2023-10-03 | [Berliner Mauer (© frankpeters/Getty Images)](https://global.bing.com/th?id=OHR.GermanFlagWall_DE-DE4359380085_UHD.jpg) 
