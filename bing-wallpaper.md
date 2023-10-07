@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-08 | [Oktopus in einer Riesenmuschelschale, Celébessee, Indonesien (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OctoClam_DE-DE2904488517_UHD.jpg) 
+
 2023-10-07 | [Grizzlybären beim Lachsfang an den Brooks Falls, Katmai National Park, Alaska, USA (© oksana.perkins/Shutterstock)](https://global.bing.com/th?id=OHR.GrizzlyFalls_DE-DE2440984688_UHD.jpg) 
 
 2023-10-06 | [Berliner Dom in Herz-Illumination, Tag der Lichter, Berlin (© fhm/Getty Images)](https://global.bing.com/th?id=OHR.CathedralHeartLight_DE-DE1265486200_UHD.jpg) 
