@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-10 | [Mount Sopris, Colorado, USA (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_DE-DE7157758124_UHD.jpg) 
+
 2023-10-09 | [Fremont-Petroglyphen, Dinosaur National Monument, Jensen, Utah, USA (© Dan Leeth/Alamy)](https://global.bing.com/th?id=OHR.FremontPetroglyph_DE-DE6958068709_UHD.jpg) 
 
 2023-10-08 | [Oktopus in einer Riesenmuschelschale, Celébessee, Indonesien (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OctoClam_DE-DE2904488517_UHD.jpg) 
