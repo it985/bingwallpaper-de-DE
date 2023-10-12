@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-13 | [Vieste auf der Halbinsel Gargano, Apulien, Italien (© Pilat666/Getty Images)](https://global.bing.com/th?id=OHR.ViesteItaly_DE-DE3430719040_UHD.jpg) 
+
 2023-10-12 | [Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)](https://global.bing.com/th?id=OHR.NeuschwansteinCastle_DE-DE2113732906_UHD.jpg) 
 
 2023-10-11 | [Die Painted Hills im John Day Fossil Beds National Monument, Oregon, USA (© Ben Herndon/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JohnDayFossil_DE-DE7440643159_UHD.jpg) 
