@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-15 | [Europäischer Igel, der sich in der Baumrinde versteckt, Sussex, England (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.AutumnHedgehog_DE-DE4330196137_UHD.jpg) 
+
 2023-10-14 | [„Ring of Fire“ ringförmige Sonnenfinsternis, Doha, Katar (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_DE-DE3909969049_UHD.jpg) 
 
 2023-10-13 | [Vieste auf der Halbinsel Gargano, Apulien, Italien (© Pilat666/Getty Images)](https://global.bing.com/th?id=OHR.ViesteItaly_DE-DE3430719040_UHD.jpg) 
