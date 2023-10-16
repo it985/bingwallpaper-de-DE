@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-17 | [Antike geschnitzte Texte aus Persepolis, Iran (© George Hall/Alamy)](https://global.bing.com/th?id=OHR.SpreadsheetDay_DE-DE5004038578_UHD.jpg) 
+
 2023-10-16 | [Goldene Lärchen und Prusik Peak, Enchantments, Washington, USA (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenEnchantments_DE-DE4721952081_UHD.jpg) 
 
 2023-10-15 | [Europäischer Igel, der sich in der Baumrinde versteckt, Sussex, England (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.AutumnHedgehog_DE-DE4330196137_UHD.jpg) 
