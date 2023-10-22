@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-23 | [Maislabyrinth in Saylorsburg, Pennsylvania, USA (© Alex Potemkin/Getty Images)](https://global.bing.com/th?id=OHR.PoconosMaze_DE-DE7096055510_UHD.jpg) 
+
 2023-10-22 | [Astoria Bridge über den Columbia River, Astoria, Oregon, USA (© Dan Mihai/Getty Images)](https://global.bing.com/th?id=OHR.AstoriaBridge_DE-DE9580426863_UHD.jpg) 
 
 2023-10-21 | [Reliefs in der antiken persischen Stadt Persepolis, Iran (© Ozbalci/Getty Images)](https://global.bing.com/th?id=OHR.PersepolisRelief_DE-DE9161406185_UHD.jpg) 
