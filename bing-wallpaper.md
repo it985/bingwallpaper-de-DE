@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-25 | [Baumwollbäume im Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_DE-DE3712466040_UHD.jpg) 
+
 2023-10-24 | [Stiftsbibliothek im Kloster Waldsassen, Oberpfalz, Bayern (© H.&D. Zielske/Image Professionals GmbH/Alamy Stock Foto)](https://global.bing.com/th?id=OHR.GermanLibrary_DE-DE3389025953_UHD.jpg) 
 
 2023-10-23 | [Maislabyrinth in Saylorsburg, Pennsylvania, USA (© Alex Potemkin/Getty Images)](https://global.bing.com/th?id=OHR.PoconosMaze_DE-DE7096055510_UHD.jpg) 
