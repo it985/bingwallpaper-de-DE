@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-26 | [Herbstlaub im Schlosspark Schönbrunn, Wien, Österreich (© rusm/Getty Images)](https://global.bing.com/th?id=OHR.ViennaAutumn_DE-DE4206809652_UHD.jpg) 
+
 2023-10-25 | [Baumwollbäume im Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_DE-DE3712466040_UHD.jpg) 
 
 2023-10-24 | [Stiftsbibliothek im Kloster Waldsassen, Oberpfalz, Bayern (© H.&D. Zielske/Image Professionals GmbH/Alamy Stock Foto)](https://global.bing.com/th?id=OHR.GermanLibrary_DE-DE3389025953_UHD.jpg) 
