@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-27 | [Alte Brücke von Sligachan, Isle of Skye, Schottland (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.OldBridgeSkye_DE-DE4629287112_UHD.jpg) 
+
 2023-10-26 | [Herbstlaub im Schlosspark Schönbrunn, Wien, Österreich (© rusm/Getty Images)](https://global.bing.com/th?id=OHR.ViennaAutumn_DE-DE4206809652_UHD.jpg) 
 
 2023-10-25 | [Baumwollbäume im Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_DE-DE3712466040_UHD.jpg) 
