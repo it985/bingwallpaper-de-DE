@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-30 | [Zwei Stockenten im Wasser, Herbst, Deutschland (© sun ok/Shutterstock)](https://global.bing.com/th?id=OHR.MallarDucks_DE-DE7798366188_UHD.jpg) 
+
 2023-10-29 | [Burg Füzér im Tokajer Gebirge, Ungarn (© ZGPhotography/Alamy)](https://global.bing.com/th?id=OHR.FuzerCastle_DE-DE7545775063_UHD.jpg) 
 
 2023-10-28 | [Windmühlen in Kastilien-La Mancha, Spanien (© Getty Images)](https://global.bing.com/th?id=OHR.FiveWinds_DE-DE4868049258_UHD.jpg) 
