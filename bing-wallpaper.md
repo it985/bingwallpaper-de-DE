@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-02 | [Salzebenen im Badwater Basin, Death Valley National Park, Kalifornien, USA (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DeathValleySalt_DE-DE7062517949_UHD.jpg) 
+
 2023-11-01 | [Burg Hohbarr, Elsass, Frankreich (© Andrea Pistolesi/Getty Images)](https://global.bing.com/th?id=OHR.HautBarr_DE-DE1903571271_UHD.jpg) 
 
 2023-10-31 | [Halloween-Kürbisse auf einer Veranda (© Bing Image Creator)](https://global.bing.com/th?id=OHR.HalloweenPorchAI_DE-DE1828718794_UHD.jpg) 
