@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-08 | [Seekuh-Mutter mit Baby, Crystal River, Three Sisters Spring, Florida, USA (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ManateeMama_DE-DE9487097081_UHD.jpg) 
+
 2023-11-07 | [Kirkilai-Seen und Aussichtsturm, Regionalpark Biržai, Litauen (© MNStudio/Shutterstock)​](https://global.bing.com/th?id=OHR.KirkilaiTower_DE-DE6766804502_UHD.jpg) 
 
 2023-11-06 | [Pehoé-See, Nationalpark Torres del Paine, Chile (© OST/Getty Images)](https://global.bing.com/th?id=OHR.LagoPehoe_DE-DE6052694621_UHD.jpg) 
