@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-09 | [Birken im Herbst, Drammen, Norwegen (© Baac3nes/Getty Images)](https://global.bing.com/th?id=OHR.NorwayBirch_DE-DE9947810365_UHD.jpg) 
+
 2023-11-08 | [Seekuh-Mutter mit Baby, Crystal River, Three Sisters Spring, Florida, USA (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ManateeMama_DE-DE9487097081_UHD.jpg) 
 
 2023-11-07 | [Kirkilai-Seen und Aussichtsturm, Regionalpark Biržai, Litauen (© MNStudio/Shutterstock)​](https://global.bing.com/th?id=OHR.KirkilaiTower_DE-DE6766804502_UHD.jpg) 
