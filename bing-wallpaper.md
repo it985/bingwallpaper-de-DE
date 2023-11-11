@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-11 | [Villnöß, Dolomiten im Hintergrund, Südtirol, Italien (© Achim Thomae/Getty Images)](https://global.bing.com/th?id=OHR.ValDiFunes_DE-DE1024519394_UHD.jpg) 
+
 2023-11-10 | [Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)](https://global.bing.com/th?id=OHR.SchwerinerSchloss_DE-DE9196106476_UHD.jpg) 
 
 2023-11-09 | [Birken im Herbst, Drammen, Norwegen (© Baac3nes/Getty Images)](https://global.bing.com/th?id=OHR.NorwayBirch_DE-DE9947810365_UHD.jpg) 
