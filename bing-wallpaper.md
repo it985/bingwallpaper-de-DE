@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-12 | [Lampen an den Ufern des Sarju-Flusses an Diwali, Ayodhya, Indien (© SANJAY KANOJIA/AFP/Getty Images)](https://global.bing.com/th?id=OHR.DiwaliAyodhya_DE-DE0909919399_UHD.jpg) 
+
 2023-11-11 | [Villnöß, Dolomiten im Hintergrund, Südtirol, Italien (© Achim Thomae/Getty Images)](https://global.bing.com/th?id=OHR.ValDiFunes_DE-DE1024519394_UHD.jpg) 
 
 2023-11-10 | [Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)](https://global.bing.com/th?id=OHR.SchwerinerSchloss_DE-DE9196106476_UHD.jpg) 
