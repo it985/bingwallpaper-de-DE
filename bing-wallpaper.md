@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-14 | [Vielblättrige Lupinen am Lake Tekapo, Südinsel, Neuseeland (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.RusellLupines_DE-DE0157339723_UHD.jpg) 
+
 2023-11-13 | [Alter Olivenhain in der Serra Tramuntana, Mallorca, Spanien (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.OliveOrchard_DE-DE1410209761_UHD.jpg) 
 
 2023-11-12 | [Lampen an den Ufern des Sarju-Flusses an Diwali, Ayodhya, Indien (© SANJAY KANOJIA/AFP/Getty Images)](https://global.bing.com/th?id=OHR.DiwaliAyodhya_DE-DE0909919399_UHD.jpg) 
