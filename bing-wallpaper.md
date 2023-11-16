@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-16 | [Blick über Athen und die Akropolis, Griechenland (© Mlenny/Getty Images)](https://global.bing.com/th?id=OHR.AthensAcropolis_DE-DE2752132503_UHD.jpg) 
+
 2023-11-15 | [Rapadalen im Nationalpark Sarek, Schweden (© Hans Strand/Getty Images)](https://global.bing.com/th?id=OHR.SarekSweden_DE-DE2380318716_UHD.jpg) 
 
 2023-11-14 | [Vielblättrige Lupinen am Lake Tekapo, Südinsel, Neuseeland (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.RusellLupines_DE-DE0157339723_UHD.jpg) 
