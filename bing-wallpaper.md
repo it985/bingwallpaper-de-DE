@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-21 | [Río Negro, Amazonasbecken, Brasilien (© Timothy Allen/Getty Images)](https://global.bing.com/th?id=OHR.RioNegro_DE-DE7737986794_UHD.jpg) 
+
 2023-11-20 | [Chapman-Abenteuerspielplatz auf dem Gathering Place, Tulsa, Oklahoma, USA (© Susan Vineyard/Alamy)](https://global.bing.com/th?id=OHR.ChapmanAdventure_DE-DE7123511876_UHD.jpg) 
 
 2023-11-19 | [Naturschutzgebiet Alam-Pedja, Estland (© Sven Zacek/Minden Pictures)](https://global.bing.com/th?id=OHR.FrozenBog_DE-DE6348025354_UHD.jpg) 
