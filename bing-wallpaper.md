@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-22 | [Grand-Teton-Nationalpark, Wyoming, USA (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.SnakeRiverTeton_DE-DE1126131831_UHD.jpg) 
+
 2023-11-21 | [Río Negro, Amazonasbecken, Brasilien (© Timothy Allen/Getty Images)](https://global.bing.com/th?id=OHR.RioNegro_DE-DE7737986794_UHD.jpg) 
 
 2023-11-20 | [Chapman-Abenteuerspielplatz auf dem Gathering Place, Tulsa, Oklahoma, USA (© Susan Vineyard/Alamy)](https://global.bing.com/th?id=OHR.ChapmanAdventure_DE-DE7123511876_UHD.jpg) 
