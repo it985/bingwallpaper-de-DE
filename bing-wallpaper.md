@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-23 | [Sonnenuntergang im Nationalpark El Teide, Teneriffa, Kanarische Inseln, Spanien (© Javier Martínez Morán/Alamy)](https://global.bing.com/th?id=OHR.TeideNational_DE-DE1766890549_UHD.jpg) 
+
 2023-11-22 | [Grand-Teton-Nationalpark, Wyoming, USA (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.SnakeRiverTeton_DE-DE1126131831_UHD.jpg) 
 
 2023-11-21 | [Río Negro, Amazonasbecken, Brasilien (© Timothy Allen/Getty Images)](https://global.bing.com/th?id=OHR.RioNegro_DE-DE7737986794_UHD.jpg) 
