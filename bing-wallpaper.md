@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-26 | [Damhirsch im Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)](https://global.bing.com/th?id=OHR.BradgateFallow_DE-DE3588733634_UHD.jpg) 
+
 2023-11-25 | [Toledo, Spanien (© Carlos Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.TajoRiver_DE-DE3120502310_UHD.jpg) 
 
 2023-11-24 | [Hall of Mosses-Pfad im Hoh-Regenwald, Olympic National Park, Washington, USA (© James Randklev/Getty Images)](https://global.bing.com/th?id=OHR.HallofMosses_DE-DE2487418746_UHD.jpg) 
