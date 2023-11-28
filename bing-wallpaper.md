@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-28 | [Riesiges Land-Art-Fresko des Künstlers Saype in Istanbul, Türkei (© Chris McGrath/Getty Images)](https://global.bing.com/th?id=OHR.HumanKindness_DE-DE4505100231_UHD.jpg) 
+
 2023-11-27 | [Weihnachtsmarkt in Frankfurt am Main, Hessen (© Michael Abid/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.FrankfurtChristmasMarket_DE-DE3743491951_UHD.jpg) 
 
 2023-11-26 | [Damhirsch im Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)](https://global.bing.com/th?id=OHR.BradgateFallow_DE-DE3588733634_UHD.jpg) 
