@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-29 | [Weihnachtsbaum des Rockefeller Centers New York City, USA (© Jonathan Orenstein/Getty Images)](https://global.bing.com/th?id=OHR.TreeLighting_DE-DE4918543732_UHD.jpg) 
+
 2023-11-28 | [Riesiges Land-Art-Fresko des Künstlers Saype in Istanbul, Türkei (© Chris McGrath/Getty Images)](https://global.bing.com/th?id=OHR.HumanKindness_DE-DE4505100231_UHD.jpg) 
 
 2023-11-27 | [Weihnachtsmarkt in Frankfurt am Main, Hessen (© Michael Abid/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.FrankfurtChristmasMarket_DE-DE3743491951_UHD.jpg) 
