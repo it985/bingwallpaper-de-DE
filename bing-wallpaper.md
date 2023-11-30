@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-30 | [Der Old Man of Storr, eine Felsnadel auf der Isle of Skye, Schottland, UK (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.TrotternishStorr_DE-DE5333891461_UHD.jpg) 
+
 2023-11-29 | [Weihnachtsbaum des Rockefeller Centers New York City, USA (© Jonathan Orenstein/Getty Images)](https://global.bing.com/th?id=OHR.TreeLighting_DE-DE4918543732_UHD.jpg) 
 
 2023-11-28 | [Riesiges Land-Art-Fresko des Künstlers Saype in Istanbul, Türkei (© Chris McGrath/Getty Images)](https://global.bing.com/th?id=OHR.HumanKindness_DE-DE4505100231_UHD.jpg) 
