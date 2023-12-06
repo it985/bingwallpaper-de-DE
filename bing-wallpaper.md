@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-06 | [Der Globe of Science and Innovation, Meyrin, Schweiz (© Deyan Baric/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CERNCenter_DE-DE6757496511_UHD.jpg) 
+
 2023-12-05 | [Schloss Neuschwanstein und Schloss Hohenschwangau, Bayerische Alpen (© Harald Nachtmann/Getty Images)](https://global.bing.com/th?id=OHR.AlpsCastles_DE-DE6522289575_UHD.jpg) 
 
 2023-12-04 | [Eine Geparde-Mutter und ihre Jungen im Masai Mara Naturschutzgebiet, Kenia (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CheetahDay_DE-DE1860675444_UHD.jpg) 
