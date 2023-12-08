@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-08 | [Souvenirverkauf auf dem Christkindlesmarkt, Nürnberg (© AlpKaya/Shutterstock)](https://global.bing.com/th?id=OHR.NurnbergSouvenir_DE-DE5480513127_UHD.jpg) 
+
 2023-12-07 | [Ein nebliger Morgen in der Verdonschlucht in den Alpes-de-Haute-Provence, Frankreich (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.GrandCanyonVerdon_DE-DE4754028043_UHD.jpg) 
 
 2023-12-06 | [Der Globe of Science and Innovation, Meyrin, Schweiz (© Deyan Baric/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CERNCenter_DE-DE6757496511_UHD.jpg) 
