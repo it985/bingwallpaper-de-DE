@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-09 | [Guanakos, Nationalpark Los Glaciares, Patagonien, Argentinien (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.PatagoniaGuanaco_DE-DE6032198626_UHD.jpg) 
+
 2023-12-08 | [Souvenirverkauf auf dem Christkindlesmarkt, Nürnberg (© AlpKaya/Shutterstock)](https://global.bing.com/th?id=OHR.NurnbergSouvenir_DE-DE5480513127_UHD.jpg) 
 
 2023-12-07 | [Ein nebliger Morgen in der Verdonschlucht in den Alpes-de-Haute-Provence, Frankreich (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.GrandCanyonVerdon_DE-DE4754028043_UHD.jpg) 
