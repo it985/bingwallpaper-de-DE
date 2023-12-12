@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-12 | [Weihnachtsstern (© Yarygin/Getty Images)](https://global.bing.com/th?id=OHR.Poinsettia_DE-DE8566445332_UHD.jpg) 
+
 2023-12-11 | [Winter im Gebirge Huang Shan, China (© Hung Chung Chih/Shutterstock)](https://global.bing.com/th?id=OHR.MountainDayChina_DE-DE7862538166_UHD.jpg) 
 
 2023-12-10 | [Sonnenstrahlen in einer Dünenlandschaft, Sahara, Algerien (© AWL Images/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.SaharaDunes_DE-DE6555086402_UHD.jpg) 
