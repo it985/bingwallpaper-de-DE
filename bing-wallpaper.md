@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-13 | [Traditionelle Fischerhütten, Svolvær, Lofoten-Inseln, Norwegen (© Roberto Moiola/Sysaworld/Getty Images)](https://global.bing.com/th?id=OHR.LofotenRorbu_DE-DE8900976536_UHD.jpg) 
+
 2023-12-12 | [Weihnachtsstern (© Yarygin/Getty Images)](https://global.bing.com/th?id=OHR.Poinsettia_DE-DE8566445332_UHD.jpg) 
 
 2023-12-11 | [Winter im Gebirge Huang Shan, China (© Hung Chung Chih/Shutterstock)](https://global.bing.com/th?id=OHR.MountainDayChina_DE-DE7862538166_UHD.jpg) 
