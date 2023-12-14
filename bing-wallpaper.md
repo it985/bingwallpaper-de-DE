@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-14 | [Raufußkauz, Saskatchewan, Kanada (© Nick Saunders/Minden Pictures)](https://global.bing.com/th?id=OHR.BorealOwl_DE-DE9921570307_UHD.jpg) 
+
 2023-12-13 | [Traditionelle Fischerhütten, Svolvær, Lofoten-Inseln, Norwegen (© Roberto Moiola/Sysaworld/Getty Images)](https://global.bing.com/th?id=OHR.LofotenRorbu_DE-DE8900976536_UHD.jpg) 
 
 2023-12-12 | [Weihnachtsstern (© Yarygin/Getty Images)](https://global.bing.com/th?id=OHR.Poinsettia_DE-DE8566445332_UHD.jpg) 
