@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-20 | [Dorf in Gröden zu Weihnachten, Dolomiten, Italien (© Ingus Kruklitis/Getty Images)](https://global.bing.com/th?id=OHR.ValGardenaItaly_DE-DE0637629816_UHD.jpg) 
+
 2023-12-19 | [Weihnachtsbaum auf dem Schlossplatz, Altstadt, Warschau, Polen (© Panther Media GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.WarsawChristmas_DE-DE0154947188_UHD.jpg) 
 
 2023-12-18 | [Capitol-Reef-Nationalpark, Utah, USA (© Jeff Clay/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CapitolReefSnow_DE-DE9763583316_UHD.jpg) 
