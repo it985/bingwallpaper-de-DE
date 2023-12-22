@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-22 | [Steinkreis von Castlerigg, Lake District National Park, Cumbria, Vereinigtes Königreich (© John Finney Photography/Getty Images)](https://global.bing.com/th?id=OHR.CastleriggStoneCircleUK_DE-DE1663391323_UHD.jpg) 
+
 2023-12-21 | [Ljubljana, Slowenien (© kasto80/Getty images)](https://global.bing.com/th?id=OHR.LjubljanaLights_DE-DE1296563106_UHD.jpg) 
 
 2023-12-20 | [Dorf in Gröden zu Weihnachten, Dolomiten, Italien (© Ingus Kruklitis/Getty Images)](https://global.bing.com/th?id=OHR.ValGardenaItaly_DE-DE0637629816_UHD.jpg) 
