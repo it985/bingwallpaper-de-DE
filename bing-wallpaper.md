@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-23 | [Berge, die sich in einem kristallklaren Bergsee spiegeln, Alpen Deutschland (© JFL Photography/Adobe Stock)](https://global.bing.com/th?id=OHR.AlpsReflecting_DE-DE8445668418_UHD.jpg) 
+
 2023-12-22 | [Steinkreis von Castlerigg, Lake District National Park, Cumbria, Vereinigtes Königreich (© John Finney Photography/Getty Images)](https://global.bing.com/th?id=OHR.CastleriggStoneCircleUK_DE-DE1663391323_UHD.jpg) 
 
 2023-12-21 | [Ljubljana, Slowenien (© kasto80/Getty images)](https://global.bing.com/th?id=OHR.LjubljanaLights_DE-DE1296563106_UHD.jpg) 
