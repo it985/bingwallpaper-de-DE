@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-24 | [Rathausplatz, Tartu, Estland (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.EstoniaXmasEve_DE-DE2504382922_UHD.jpg) 
+
 2023-12-23 | [Berge, die sich in einem kristallklaren Bergsee spiegeln, Alpen Deutschland (© JFL Photography/Adobe Stock)](https://global.bing.com/th?id=OHR.AlpsReflecting_DE-DE8445668418_UHD.jpg) 
 
 2023-12-22 | [Steinkreis von Castlerigg, Lake District National Park, Cumbria, Vereinigtes Königreich (© John Finney Photography/Getty Images)](https://global.bing.com/th?id=OHR.CastleriggStoneCircleUK_DE-DE1663391323_UHD.jpg) 
