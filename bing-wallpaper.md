@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-26 | [Wintersonnenaufgang in Dedham, Colchester, England (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.BoxingDaySunrise_DE-DE5103627407_UHD.jpg) 
+
 2023-12-25 | [Karibu auf der Flucht im Schnee, Alaska, USA (© Michael Quinton/Minden Pictures)](https://global.bing.com/th?id=OHR.CaribouChristmas_DE-DE4610798173_UHD.jpg) 
 
 2023-12-24 | [Rathausplatz, Tartu, Estland (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.EstoniaXmasEve_DE-DE2504382922_UHD.jpg) 
