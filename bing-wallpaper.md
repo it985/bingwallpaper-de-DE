@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-28 | [Buckelwal, Diskobucht, Grönland (© Paul Souders/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.GreenlandHumpback_DE-DE6818305834_UHD.jpg) 
+
 2023-12-26 | [Wintersonnenaufgang in Dedham, Colchester, England (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.BoxingDaySunrise_DE-DE5103627407_UHD.jpg) 
 
 2023-12-25 | [Karibu auf der Flucht im Schnee, Alaska, USA (© Michael Quinton/Minden Pictures)](https://global.bing.com/th?id=OHR.CaribouChristmas_DE-DE4610798173_UHD.jpg) 
