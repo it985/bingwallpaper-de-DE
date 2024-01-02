@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-02 | [Gebetsfahnen im Phobjikha-Tal, Bhutan (© John Warburton-Lee/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.BhutanSolstice_DE-DE0513592693_UHD.jpg) 
+
 2024-01-01 | [Schlafender Rotfuchs im Schnee, Abruzzen, Italien (© marco vancini/500px/Getty Images)](https://global.bing.com/th?id=OHR.SleepingFox_DE-DE0284095330_UHD.jpg) 
 
 2023-12-31 | [Feuerwerk in Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)](https://global.bing.com/th?id=OHR.ThailandNewYears_DE-DE0040209012_UHD.jpg) 
