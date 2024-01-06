@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-06 | [Golden Gate Bridge, San Francisco, Kalifornien, USA (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenGateLight_DE-DE1352725160_UHD.jpg) 
+
 2024-01-05 | [Harbiner Internationales Eis- und Schneefest, Harbin, China (© WANG ZHAO/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HarbinFestival_DE-DE1103368312_UHD.jpg) 
 
 2024-01-04 | [Klosterkirche St. Peter auf dem Schwarzwald, Südschwarzwald, Baden-Württemberg (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.StPeterMonastery_DE-DE0883907232_UHD.jpg) 
