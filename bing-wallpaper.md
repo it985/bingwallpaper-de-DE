@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-07 | [Karlu Karlu, heilige Stätte der Aborigines, Australien (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.DevilsMarbles_DE-DE1638220976_UHD.jpg) 
+
 2024-01-06 | [Golden Gate Bridge, San Francisco, Kalifornien, USA (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenGateLight_DE-DE1352725160_UHD.jpg) 
 
 2024-01-05 | [Harbiner Internationales Eis- und Schneefest, Harbin, China (© WANG ZHAO/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HarbinFestival_DE-DE1103368312_UHD.jpg) 
