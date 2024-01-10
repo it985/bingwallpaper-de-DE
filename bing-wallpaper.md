@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-10 | [Eurasischer Luchs im Schnee (© Jan Stria/Shutterstock)](https://global.bing.com/th?id=OHR.LynxSnow_DE-DE2468940407_UHD.jpg) 
+
 2024-01-09 | [Heißluftballons über dem Rio Grande, Albuquerque, New Mexico, USA (© Jennifer MacCornack/Shutterstock)](https://global.bing.com/th?id=OHR.BalloonDay_DE-DE2164566346_UHD.jpg) 
 
 2024-01-08 | [Skifahrer am Berninapass, Graubünden, Schweiz (© Francesco Bergamaschi/Getty Images)](https://global.bing.com/th?id=OHR.BerninaPass_DE-DE1884250361_UHD.jpg) 
