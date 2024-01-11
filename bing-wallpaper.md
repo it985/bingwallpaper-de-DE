@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-11 | [Früchte-im-Frost-und-Eis-versteckt,-Göttingen (© Duncan Usher/Alamy Stock Foto)](https://global.bing.com/th?id=OHR.OrnamentalAppleTree_DE-DE2719116255_UHD.jpg) 
+
 2024-01-10 | [Eurasischer Luchs im Schnee (© Jan Stria/Shutterstock)](https://global.bing.com/th?id=OHR.LynxSnow_DE-DE2468940407_UHD.jpg) 
 
 2024-01-09 | [Heißluftballons über dem Rio Grande, Albuquerque, New Mexico, USA (© Jennifer MacCornack/Shutterstock)](https://global.bing.com/th?id=OHR.BalloonDay_DE-DE2164566346_UHD.jpg) 
