@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-20 | [Goldschopfpinguine, Drakestraße, Chile (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.MacaroniPenguins_DE-DE9243593440_UHD.jpg) 
+
 2024-01-19 | [Nationalpark Plitvicer Seen, Kroatien (© Massimo_S8/Getty Images)](https://global.bing.com/th?id=OHR.PlitviceWinter_DE-DE4628468125_UHD.jpg) 
 
 2024-01-18 | [Brücke Alexandre III. in der Dämmerung, Paris, Frankreich (© Sizun Eye/Getty Images)](https://global.bing.com/th?id=OHR.ParisBridge_DE-DE4033680304_UHD.jpg) 
