@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-22 | [Beatus-Rhenanus-Brücke über den Rhein, zwischen Straßburg und Kehl, Straßburg, Frankreich (© mauritius images GmbH/Alamy)](https://global.bing.com/th?id=OHR.RenanusBridge_DE-DE1445260424_UHD.jpg) 
+
 2024-01-21 | [Rotes Eurasisches Eichhörnchen, Niederlande (© Ernst Dirksen/Minden Pictures)](https://global.bing.com/th?id=OHR.SquirrelNetherlands_DE-DE9549410470_UHD.jpg) 
 
 2024-01-20 | [Goldschopfpinguine, Drakestraße, Chile (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.MacaroniPenguins_DE-DE9243593440_UHD.jpg) 
