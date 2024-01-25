@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-25 | [Ruinen der St. Dwynwen's Church, Ynys Llanddwyn, Wales, Vereinigtes Königreich (© Photos by R A Kearton/Getty Images)](https://global.bing.com/th?id=OHR.DwynwensDay_DE-DE3164731658_UHD.jpg) 
+
 2024-01-24 | [Jökulsárlón, Island (© Rachid Dahnoun/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.IcelandBeach_DE-DE2839387359_UHD.jpg) 
 
 2024-01-23 | [Atolle im Indischen Ozean, Malediven (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.MaldivesAtolls_DE-DE0846925099_UHD.jpg) 
