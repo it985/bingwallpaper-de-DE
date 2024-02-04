@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-04 | [Devetashka-Höhle, Devetaki, Bulgarien (© Jasmine_K/Shutterstock)](https://global.bing.com/th?id=OHR.DevetashkaCave_DE-DE0726583850_UHD.jpg) 
+
 2024-02-03 | [Canal Grande mit der Basilika Santa Maria della Salute, Venedig, Italien (© RudyBalasko/Getty Images)](https://global.bing.com/th?id=OHR.VeniceCarnival_DE-DE9873730280_UHD.jpg) 
 
 2024-02-02 | [Murmeltier lugt aus seinem Bau hervor (© Scacciamosche/Getty Images)](https://global.bing.com/th?id=OHR.AlpineMarmot_DE-DE8110603230_UHD.jpg) 
