@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-05 | [Innenansicht Münchner Nationaltheater Opernhaus, München, Bayern (© plainpicture/RelaxImages/WRIGHT)](https://global.bing.com/th?id=OHR.MunichOperaHouse_DE-DE1491407214_UHD.jpg) 
+
 2024-02-04 | [Devetashka-Höhle, Devetaki, Bulgarien (© Jasmine_K/Shutterstock)](https://global.bing.com/th?id=OHR.DevetashkaCave_DE-DE0726583850_UHD.jpg) 
 
 2024-02-03 | [Canal Grande mit der Basilika Santa Maria della Salute, Venedig, Italien (© RudyBalasko/Getty Images)](https://global.bing.com/th?id=OHR.VeniceCarnival_DE-DE9873730280_UHD.jpg) 
