@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-15 | [Berlinale, roter Teppich am Potsdamer Platz, Berlin (© Cineberg/Getty Images)](https://global.bing.com/th?id=OHR.BerlinalePalast_DE-DE2536739383_UHD.jpg) 
+
 2024-02-14 | [Mandschurenkranich mit Gefährtin in Hokkaido, Japan (© Steve Bloom Images/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.BowingCrane_DE-DE6578691031_UHD.jpg) 
 
 2024-02-13 | [Mardi Gras im Stadtteil Marigny, New Orleans, USA (© Erik Pronske Photography/Getty Images)](https://global.bing.com/th?id=OHR.MarignyBeads_DE-DE5830440814_UHD.jpg) 
