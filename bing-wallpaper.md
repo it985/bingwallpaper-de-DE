@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-17 | [Der Pragser Wildsee in den Dolomiten, Südtirol, Italien (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.LakeDolomites_DE-DE3348859489_UHD.jpg) 
+
 2024-02-16 | [Ein Wüstenkardinal sitzt auf einem stacheligen Kaktus in Texas, USA (© outtakes/Getty Images)](https://global.bing.com/th?id=OHR.BackyardBird_DE-DE3770277310_UHD.jpg) 
 
 2024-02-15 | [Berlinale, roter Teppich am Potsdamer Platz, Berlin (© Cineberg/Getty Images)](https://global.bing.com/th?id=OHR.BerlinalePalast_DE-DE2536739383_UHD.jpg) 
