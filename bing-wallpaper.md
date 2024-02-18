@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-18 | [Auftauchende Pottwale, Dominica, Karibik (© Franco Banfi/Minden Pictures)](https://global.bing.com/th?id=OHR.DominicaWhales_DE-DE9056542872_UHD.jpg) 
+
 2024-02-17 | [Der Pragser Wildsee in den Dolomiten, Südtirol, Italien (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.LakeDolomites_DE-DE3348859489_UHD.jpg) 
 
 2024-02-16 | [Ein Wüstenkardinal sitzt auf einem stacheligen Kaktus in Texas, USA (© outtakes/Getty Images)](https://global.bing.com/th?id=OHR.BackyardBird_DE-DE3770277310_UHD.jpg) 
