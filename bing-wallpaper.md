@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-21 | [Horsetail-Wasserfall, Yosemite-Nationalpark, Kalifornien, USA (© Gregory B Cuvelier/Shutterstock)](https://global.bing.com/th?id=OHR.YosemiteFirefall_DE-DE4800433927_UHD.jpg) 
+
 2024-02-20 | [Kinder Scout bei Sonnenaufgang, Peak-District-Nationalpark, UK (© john finney photography/Getty Images)](https://global.bing.com/th?id=OHR.PeakDistrictNP_DE-DE4372136028_UHD.jpg) 
 
 2024-02-19 | [Luftaufnahme von bunten Häusern an der Küste von Puerto de la Cruz, Teneriffa, Spanien (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.CarnavalTenerife_DE-DE3563683527_UHD.jpg) 
