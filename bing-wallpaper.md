@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-23 | [Kloster Haghartsin, Dilijan-Nationalpark, Armenien (© Alexey Kharitonov/Shutterstock)](https://global.bing.com/th?id=OHR.HaghartsinMonastery_DE-DE6295908879_UHD.jpg) 
+
 2024-02-22 | [Wundervoll gefrorene Seifenblase (© Oksana Schmidt/Getty Images)](https://global.bing.com/th?id=OHR.FrozenSoapBubble_DE-DE1646022530_UHD.jpg) 
 
 2024-02-21 | [Horsetail-Wasserfall, Yosemite-Nationalpark, Kalifornien, USA (© Gregory B Cuvelier/Shutterstock)](https://global.bing.com/th?id=OHR.YosemiteFirefall_DE-DE4800433927_UHD.jpg) 
