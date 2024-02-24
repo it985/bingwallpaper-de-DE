@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-24 | [Hänsel und Gretel Haus in Oberammergau, Bayern (© Tim Graham/Getty Images)](https://global.bing.com/th?id=OHR.HanselGretelHouse_DE-DE6769523400_UHD.jpg) 
+
 2024-02-23 | [Kloster Haghartsin, Dilijan-Nationalpark, Armenien (© Alexey Kharitonov/Shutterstock)](https://global.bing.com/th?id=OHR.HaghartsinMonastery_DE-DE6295908879_UHD.jpg) 
 
 2024-02-22 | [Wundervoll gefrorene Seifenblase (© Oksana Schmidt/Getty Images)](https://global.bing.com/th?id=OHR.FrozenSoapBubble_DE-DE1646022530_UHD.jpg) 
