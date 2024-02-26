@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-26 | [Grand-Canyon-Nationalpark, Arizona, USA (© Jeremy Janus/Getty Images)](https://global.bing.com/th?id=OHR.GrandCanyonWinter_DE-DE6805018652_UHD.jpg) 
+
 2024-02-25 | [Nebel im Cowichan Valley auf Vancouver Island, British Columbia, Kanada (© Kevin Oke/Alamy)](https://global.bing.com/th?id=OHR.MtPrevostDuncan_DE-DE5893806279_UHD.jpg) 
 
 2024-02-24 | [Hänsel und Gretel Haus in Oberammergau, Bayern (© Tim Graham/Getty Images)](https://global.bing.com/th?id=OHR.HanselGretelHouse_DE-DE6769523400_UHD.jpg) 
