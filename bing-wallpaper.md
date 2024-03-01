@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-01 | [Schmetterlinge auf einer Wiese, Deutschland (© Albert Fertl/Getty Images)](https://global.bing.com/th?id=OHR.Schmetterlingswiese_DE-DE0613438088_UHD.jpg) 
+
 2024-02-29 | [Eurasisches Eichhörnchen (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.LeapingSquirrel_DE-DE7623766811_UHD.jpg) 
 
 2024-02-28 | [Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://global.bing.com/th?id=OHR.BamburghCastleUK_DE-DE7368019020_UHD.jpg) 
