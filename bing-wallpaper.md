@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-07 | [Felsen von Benet, Parc Natural dels Ports, Katalonien, Spanien (© Sergi Boixader/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TarragonaSpain_DE-DE8015147907_UHD.jpg) 
+
 2024-03-06 | [Wahclella-Fälle in der Columbia Fluss-Schlucht, Oregon, USA (© Eric Vogt/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WahclellaFalls_DE-DE6758659326_UHD.jpg) 
 
 2024-03-05 | [Schnellstraße in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)](https://global.bing.com/th?id=OHR.BangkokCircle_DE-DE6353935365_UHD.jpg) 
