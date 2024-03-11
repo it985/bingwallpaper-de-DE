@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-11 | [Ein Koala schläft auf einem Eukalyptusbaum, Australien (© Anton Rogozin/Getty Images)](https://global.bing.com/th?id=OHR.SleepyKoala_DE-DE9658817284_UHD.jpg) 
+
 2024-03-10 | [Rathaus Ulm, Astronomische Uhr aus dem 16. Jahrhundert, Ulm, Baden-Württemberg (© Hemis/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.AstrologicalClock_DE-DE9747364573_UHD.jpg) 
 
 2024-03-09 | [Bisti/De-Na-Zin unberührte Wildnis, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BistiBlue_DE-DE4146045796_UHD.jpg) 
