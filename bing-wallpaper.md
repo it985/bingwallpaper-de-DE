@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-16 | [Großer Panda nascht Bambus, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.BambooPanda_DE-DE5582492401_UHD.jpg) 
+
 2024-03-15 | [Lindenallee, baumgesäumter Fußweg durch den Park im Frühling (© AVTG/Getty Images)](https://global.bing.com/th?id=OHR.AvenueLimeTrees_DE-DE2066853614_UHD.jpg) 
 
 2024-03-14 | [Wat Phra Ngam, Geschichtspark Ayutthaya, Thailand (© boonchai wedmakawand/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.AyutthayaTree_DE-DE1912781060_UHD.jpg) 
