@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-17 | [St. Finian's Bay, Grafschaft Kerry, Irland (© Atlantide Phototravel/Getty Images)](https://global.bing.com/th?id=OHR.StFiniansBay_DE-DE5892582387_UHD.jpg) 
+
 2024-03-16 | [Großer Panda nascht Bambus, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.BambooPanda_DE-DE5582492401_UHD.jpg) 
 
 2024-03-15 | [Lindenallee, baumgesäumter Fußweg durch den Park im Frühling (© AVTG/Getty Images)](https://global.bing.com/th?id=OHR.AvenueLimeTrees_DE-DE2066853614_UHD.jpg) 
