@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-28 | [Kirschblüten in Shanghai, China (© Yaorusheng/Getty Images)](https://global.bing.com/th?id=OHR.ShanghaiBlossoms_DE-DE4316919248_UHD.jpg) 
+
 2024-03-27 | [Teatro Colón in Buenos Aires, Argentinien (© Wei Hao Ho/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TeatroColon_DE-DE4190221983_UHD.jpg) 
 
 2024-03-26 | [Meerwasser fällt in Kaskaden über ein altes Korallenriff, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.HangRaiVietnam_DE-DE4086995351_UHD.jpg) 
