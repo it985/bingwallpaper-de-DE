@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-30 | [„Vanishing Point“, des Straßenkünstlers JR bedeckt die Fassade des Palazzo Farnese, Rom, Italien (© Fabrizio Troiani/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.PalazzoFarnese_DE-DE4941485496_UHD.jpg) 
+
 2024-03-29 | [South Stack Leuchtturm bei Sonnenuntergang, Holyhead, Wales, UK (© mariotlr/Getty Images)](https://global.bing.com/th?id=OHR.SouthStackLight_DE-DE4463746049_UHD.jpg) 
 
 2024-03-28 | [Kirschblüten in Shanghai, China (© Yaorusheng/Getty Images)](https://global.bing.com/th?id=OHR.ShanghaiBlossoms_DE-DE4316919248_UHD.jpg) 
