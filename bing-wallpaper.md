@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-01 | [Traunsteiner Pferde beim traditionellen St. Georgi-Ritt am Ostermontag in bayerischen Farben geschmückt, Deutschland (© Christof Stache/AFP via Getty Images)](https://global.bing.com/th?id=OHR.StGeorgiRide_DE-DE6646277481_UHD.jpg) 
+
 2024-03-30 | [„Vanishing Point“, des Straßenkünstlers JR bedeckt die Fassade des Palazzo Farnese, Rom, Italien (© Fabrizio Troiani/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.PalazzoFarnese_DE-DE4941485496_UHD.jpg) 
 
 2024-03-29 | [South Stack Leuchtturm bei Sonnenuntergang, Holyhead, Wales, UK (© mariotlr/Getty Images)](https://global.bing.com/th?id=OHR.SouthStackLight_DE-DE4463746049_UHD.jpg) 
