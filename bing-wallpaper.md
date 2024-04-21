@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-22 | [Grüne Meeresschildkröte, San Diego, Kalifornien, USA (© Ralph Pace/Minden Pictures)](https://global.bing.com/th?id=OHR.EarthDayTurtle_DE-DE6584075378_UHD.jpg) 
+
 2024-04-21 | [Blumenbeete mit Tulpen und anderen Frühlingsblumen im Rheinpark, Köln (© Elisabeth Schittenhelm/Getty Images)](https://global.bing.com/th?id=OHR.CologneFlowerBed_DE-DE3966467653_UHD.jpg) 
 
 2024-04-20 | [Grand Prismatic Spring bei Sonnenaufgang, Yellowstone-Nationalpark, Wyoming, USA (© XIN WANG/Getty Images)](https://global.bing.com/th?id=OHR.YellowstoneGeyser_DE-DE4718129608_UHD.jpg) 
