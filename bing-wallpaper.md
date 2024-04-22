@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-23 | [Bibliothek des Trinity College Dublin, Irland (© Lukas Bischoff/Getty Images)](https://global.bing.com/th?id=OHR.TrinityDublin_DE-DE4235141840_UHD.jpg) 
+
 2024-04-22 | [Grüne Meeresschildkröte, San Diego, Kalifornien, USA (© Ralph Pace/Minden Pictures)](https://global.bing.com/th?id=OHR.EarthDayTurtle_DE-DE6584075378_UHD.jpg) 
 
 2024-04-21 | [Blumenbeete mit Tulpen und anderen Frühlingsblumen im Rheinpark, Köln (© Elisabeth Schittenhelm/Getty Images)](https://global.bing.com/th?id=OHR.CologneFlowerBed_DE-DE3966467653_UHD.jpg) 
