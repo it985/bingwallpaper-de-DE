@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-24 | [Blühende Waldlilien in Ontario, Kanada (© Jun Zhang/Getty Images)](https://global.bing.com/th?id=OHR.TrilliumOntario_DE-DE6034423661_UHD.jpg) 
+
 2024-04-23 | [Bibliothek des Trinity College Dublin, Irland (© Lukas Bischoff/Getty Images)](https://global.bing.com/th?id=OHR.TrinityDublin_DE-DE4235141840_UHD.jpg) 
 
 2024-04-22 | [Grüne Meeresschildkröte, San Diego, Kalifornien, USA (© Ralph Pace/Minden Pictures)](https://global.bing.com/th?id=OHR.EarthDayTurtle_DE-DE6584075378_UHD.jpg) 
