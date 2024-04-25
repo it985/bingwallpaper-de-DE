@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-26 | [Adeliepinguine auf einem Eisberg, Antarktis (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.PenguinDirections_DE-DE2082660344_UHD.jpg) 
+
 2024-04-25 | [Kalaloch Tree, Kalaloch, Olympic-Nationalpark, Washington, USA (© Abbie Warnock-Matthews/Shutterstock)](https://global.bing.com/th?id=OHR.KalalochTree_DE-DE1811180664_UHD.jpg) 
 
 2024-04-24 | [Blühende Waldlilien in Ontario, Kanada (© Jun Zhang/Getty Images)](https://global.bing.com/th?id=OHR.TrilliumOntario_DE-DE6034423661_UHD.jpg) 
