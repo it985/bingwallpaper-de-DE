@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-01 | [Weg durch den Gespensterwald bei Sonnenaufgang, Nienhagen, Mecklenburg-Vorpommern (© Martin Ruegner/Getty Images)](https://global.bing.com/th?id=OHR.NienhagenMecklenburg_DE-DE3604963569_UHD.jpg) 
+
 2024-04-30 | [Gepard im Morgenregen, Ndutu-Region, Ngorongoro, Tansania (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.CheetahRain_DE-DE3160302306_UHD.jpg) 
 
 2024-04-29 | [Fujian Tulou, historische und kulturhistorische Gebäude in der Provinz Fujian, China (© Hongjie Han/Getty Images)](https://global.bing.com/th?id=OHR.TulouFujian_DE-DE2936952275_UHD.jpg) 
