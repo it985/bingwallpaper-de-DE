@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-05 | [Kolonnade in San Miguel de Allende, Guanajuato, Mexiko (© Mint Images/Getty Images)](https://global.bing.com/th?id=OHR.SanMiguelAllende_DE-DE2308730889_UHD.jpg) 
+
 2024-05-04 | [Die Ruinen eines alten Klosters auf der Insel Skellig Michael, Irland (© MNStudio/Getty Images)](https://global.bing.com/th?id=OHR.JediMonastery_DE-DE1926121276_UHD.jpg) 
 
 2024-05-03 | [Im Frühling blühende Sträucher, Sonora-Wüste, Arizona, USA (© Charles Harker/Getty Images)](https://global.bing.com/th?id=OHR.SonoranSpring_DE-DE9357801866_UHD.jpg) 
