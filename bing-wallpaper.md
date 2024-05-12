@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-13 | [Fischfluss-Canyon, Namibia (© R. M. Nunes/Getty Images)](https://global.bing.com/th?id=OHR.NamibiaCanyon_DE-DE8827731731_UHD.jpg) 
+
 2024-05-12 | [Guanako-Weibchen und neugeborenes Baby im Grasland, La Pampa, Argentinien (© Gabriel Rojo/Minden Pictures)](https://global.bing.com/th?id=OHR.GuanacoMother_DE-DE8465520187_UHD.jpg) 
 
 2024-05-11 | [Die „Blaue Stadt“ Jodhpur, Rajasthan, Indien (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.BlueCityIndia_DE-DE7777501336_UHD.jpg) 
