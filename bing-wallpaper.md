@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-17 | [Eine Familie afrikanischer Elefanten im Tarangire-Nationalpark, Tansania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://global.bing.com/th?id=OHR.TarangireElephants_DE-DE6659781135_UHD.jpg) 
+
 2024-05-16 | [„Gefühle sind Fakten“, Künstler Olafur Eliasson und Architekt Ma Yansong, Peking, China (© Feng Li/Getty Images News)](https://global.bing.com/th?id=OHR.DayOfLight_DE-DE0376737244_UHD.jpg) 
 
 2024-05-15 | [Blick über den Fluss Neckar auf das Stadtbild von Heidelberg, Baden-Württemberg (© Juergen Sack/Getty Images)](https://global.bing.com/th?id=OHR.RiverNekarHeidelberg_DE-DE0017451449_UHD.jpg) 
