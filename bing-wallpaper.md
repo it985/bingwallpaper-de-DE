@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-21 | [Teeplantagen Cameron Highlands, Malaysia (© alex cheong/Getty Images)](https://global.bing.com/th?id=OHR.MalaysiaTea_DE-DE8270167574_UHD.jpg) 
+
 2024-05-20 | [Biene bei der Pflege einer Wabe (© Simun Ascic/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.HoneycombBee_DE-DE7958601447_UHD.jpg) 
 
 2024-05-19 | [Die Büste der Königin Nofretete, Ägyptisches Museum, Museumsinseln Berlin (© Christophe Gateau/picture alliance via Getty Images)](https://global.bing.com/th?id=OHR.NefertitiMuseum_DE-DE7400530006_UHD.jpg) 
