@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-25 | [Aït-Ben-Haddou, Marokko (© Grant Faint/Getty Images)](https://global.bing.com/th?id=OHR.MoroccoBenhaddou_DE-DE9640944189_UHD.jpg) 
+
 2024-05-24 | [Añisclo-Schlucht, Nationalpark Ordesa y Monte Perdido, Huesca, Spanien (© Marisa Estivill/Shutterstock)](https://global.bing.com/th?id=OHR.OrdesaNationalPark_DE-DE9218921574_UHD.jpg) 
 
 2024-05-23 | [Indische Sternschildkröte, Sri Lanka (© Robin Chittenden/Minden Pictures)](https://global.bing.com/th?id=OHR.IndianStarTortoise_DE-DE8901102439_UHD.jpg) 
