@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-29 | [Europäischer Fischotter, Loch Spelve, Isle of Mull, Schottland (© Neil Henderson/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.MullOtter_DE-DE1417523024_UHD.jpg) 
+
 2024-05-28 | [Kloster Rousanou, Meteora, Thessalien, Griechenland (© Marius Roman/Getty Images)](https://global.bing.com/th?id=OHR.MeteoraMonastery_DE-DE0965376311_UHD.jpg) 
 
 2024-05-27 | [Baia del Silenzio in Sestri Levante, Ligurien, Italien (© StevanZZ/Getty Images)](https://global.bing.com/th?id=OHR.SestriLevante_DE-DE0573141632_UHD.jpg) 
