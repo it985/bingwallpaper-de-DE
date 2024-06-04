@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-05 | [Masoala-Nationalpark in Madagaskar (© Dennis van de Water/Shutterstock)](https://global.bing.com/th?id=OHR.MadagascarRiver_DE-DE7722316951_UHD.jpg) 
+
 2024-06-04 | [Bienenfresser, Bardia-Nationalpark, Nepal (© PACO COMO/Shutterstock)](https://global.bing.com/th?id=OHR.ChestnutBeeEater_DE-DE7400779777_UHD.jpg) 
 
 2024-06-03 | [Fahrräder in Kopenhagen, Dänemark (© Alphotographic/Getty Images)](https://global.bing.com/th?id=OHR.CopenhagenBicycles_DE-DE6785283446_UHD.jpg) 
