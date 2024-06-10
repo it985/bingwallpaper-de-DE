@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-11 | [Spießbock in der Savanne, Botswana (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GemsbokBotswana_DE-DE9586161509_UHD.jpg) 
+
 2024-06-10 | [Osaka bei Nacht, Japan (© wichianduangsri/Getty Images)](https://global.bing.com/th?id=OHR.OsakaNight_DE-DE9198520321_UHD.jpg) 
 
 2024-06-09 | [Kloster Kamp mit Terrassengarten und Klosterbarockgarten, Kamp-Lintfort, Niederrhein (© Hans Blossey/Alamy)](https://global.bing.com/th?id=OHR.KlosterKamp_DE-DE6407205141_UHD.jpg) 
