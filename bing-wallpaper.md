@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-14 | [Leuchtturm Peggy’s Point, Nova Scotia, Kanada (© Pugalenthi/Getty Images)](https://global.bing.com/th?id=OHR.PeggysCove_DE-DE6175899520_UHD.jpg) 
+
 2024-06-13 | [Mosaik-Fassade auf dem Registan-Platz, Samarkand, Usbekistan (© da-kuk/Getty Images)](https://global.bing.com/th?id=OHR.RegistanUzbekistan_DE-DE0297910623_UHD.jpg) 
 
 2024-06-12 | [Milchstraße über dem Big-Bend-Nationalpark, Texas, USA (© wisanuboonrawd/Adobe Stock)](https://global.bing.com/th?id=OHR.BigBendMilkyWay_DE-DE9932033977_UHD.jpg) 
