@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-18 | [Lupinenfelder und Kirche bei Sonnenaufgang, Snæfellsnes-Halbinsel, Island (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.LupinIceland_DE-DE8795741566_UHD.jpg) 
+
 2024-06-17 | [Grünstirn-Brillantkolibri mit Riesendistel, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.HummingThistle_DE-DE7552143842_UHD.jpg) 
 
 2024-06-16 | [Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)](https://global.bing.com/th?id=OHR.Ruinenberg_DE-DE5900996291_UHD.jpg) 
