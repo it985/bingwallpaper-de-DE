@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-21 | [Netzgiraffenmutter begrüßt ihr Kalb, Lewa Wildlife Conservancy, Kenia (© Sean Crane/Minden Pictures)](https://global.bing.com/th?id=OHR.LewaGiraffe_DE-DE0857828620_UHD.jpg) 
+
 2024-06-20 | [Kokino, ein antikes megalithisches Observatorium, Nordmazedonien (© stoimilov/Shutterstock)](https://global.bing.com/th?id=OHR.KokinoMacedonia_DE-DE0078075426_UHD.jpg) 
 
 2024-06-19 | [Wasserturm in Cuxhaven, Deutschland (© Andreas Vogel/Alamy)](https://global.bing.com/th?id=OHR.CuxhavenTower_DE-DE4991048453_UHD.jpg) 
