@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-27 | [Dom Santa Maria del Fiore in der Abenddämmerung, Florenz, Italien (© Elena Pueyo/Getty Images)](https://global.bing.com/th?id=OHR.FlorenceDuomo_DE-DE5707653753_UHD.jpg) 
+
 2024-06-26 | [Junger Banggai Kardinalbarsch mit Seeanemone, Lembeh Strait, Nordsulawesi, Indonesien (© Constantinos Petrinos/NPL/Minden Pictures)](https://global.bing.com/th?id=OHR.CardinalfishAnemone_DE-DE5420606353_UHD.jpg) 
 
 2024-06-25 | [Die Felsformation Fire Wave, Valley of Fire State Park, Nevada, USA (© Clint Losee/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireWave_DE-DE5152137899_UHD.jpg) 
