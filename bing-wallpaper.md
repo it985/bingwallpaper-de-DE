@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-29 | [Radsportler bei der Tour de France 2013, Korsika, Frankreich (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TourCorsica_DE-DE8597193744_UHD.jpg) 
+
 2024-06-28 | [Die Allianz Arena in Regenbogenfarben beleuchtet, München, Deutschland (© Marci Kost/Getty Images)](https://global.bing.com/th?id=OHR.AllianzArena_DE-DE5063263728_UHD.jpg) 
 
 2024-06-27 | [Dom Santa Maria del Fiore in der Abenddämmerung, Florenz, Italien (© Elena Pueyo/Getty Images)](https://global.bing.com/th?id=OHR.FlorenceDuomo_DE-DE5707653753_UHD.jpg) 
