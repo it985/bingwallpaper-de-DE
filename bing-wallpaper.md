@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-02 | [Italica, eine alte römische Stadt in Santiponce, Sevilla, Andalusien, Spanien (© Moses Palermo/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ItalicaRuins_DE-DE9553207301_UHD.jpg) 
+
 2024-07-01 | [Schloss Heidelberg, Heidelberg, Baden-Württemberg (© Hans Blossey/Alamy)](https://global.bing.com/th?id=OHR.HeidelbergCastle_DE-DE7111251205_UHD.jpg) 
 
 2024-06-30 | [Steinmetzarbeiten in einem Tempel in Ubud, Bali, Indonesien (© R. Schönebaum/plainpicture)](https://global.bing.com/th?id=OHR.UbudBali_DE-DE9291119795_UHD.jpg) 
