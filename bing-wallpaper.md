@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-12 | [Wildblumen im Mount Rainier-Nationalpark, Washington, USA (© RomanKhomlyak/Getty Images)](https://global.bing.com/th?id=OHR.RainierWildflowers_DE-DE3042432788_UHD.jpg) 
+
 2024-07-11 | [Gangi, Sizilien, Italien (© Andrea Caruso/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.GangiSicily_DE-DE4531424079_UHD.jpg) 
 
 2024-07-10 | [Halsbandarassari, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.CollaredAracari_DE-DE4220062788_UHD.jpg) 
