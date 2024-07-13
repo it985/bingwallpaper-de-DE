@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-14 | [Münchner Opernfestspiele, München (© B.O'Kane/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IntNatTheatreMunich_DE-DE4410278977_UHD.jpg) 
+
 2024-07-13 | [Feenkamine und Höhlenwohnungen in Kappadokien, Türkei (© Storm Is Me/Shutterstock)](https://global.bing.com/th?id=OHR.CappadociaRocks_DE-DE6351998618_UHD.jpg) 
 
 2024-07-12 | [Wildblumen im Mount Rainier-Nationalpark, Washington, USA (© RomanKhomlyak/Getty Images)](https://global.bing.com/th?id=OHR.RainierWildflowers_DE-DE3042432788_UHD.jpg) 
