@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-24 | [Herde von Swaledale-Schafen in North Yorkshire, England (© R A Kearton/Getty Images)](https://global.bing.com/th?id=OHR.SheepCousins_DE-DE1595160882_UHD.jpg) 
+
 2024-07-23 | [Burg von Methoni, Messenien, Griechenland (© Andrew Mayovskyy/Shutterstock)](https://global.bing.com/th?id=OHR.MethoniCastle_DE-DE8197335840_UHD.jpg) 
 
 2024-07-22 | [Strandkörbe auf der Insel Rügen, Deutschland (© Peter Adams/Getty images)](https://global.bing.com/th?id=OHR.WickerBeachBaskets_DE-DE6881369278_UHD.jpg) 
