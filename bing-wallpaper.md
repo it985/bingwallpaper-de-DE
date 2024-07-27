@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-28 | [Badehütten am Strand in der Provinz Skåne Iän, Schweden (© Martin Wahlborg/Getty Images)](https://global.bing.com/th?id=OHR.BeachHutsSweden_DE-DE4614841617_UHD.jpg) 
+
 2024-07-27 | [Weinberge im Moseltal, Rheinland-Pfalz (© Jorg Greuel/Getty Images)](https://global.bing.com/th?id=OHR.RhinelandVineyards_DE-DE4066969313_UHD.jpg) 
 
 2024-07-26 | [Pont Neuf über der Seine, Paris, Frankreich (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.PontNeuf_DE-DE3491182844_UHD.jpg) 
