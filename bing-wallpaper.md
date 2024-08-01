@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-02 | [Trunk Bay, Virgin-Islands-Nationalpark, Saint John, USA (© cdwheatley/Getty Images)](https://global.bing.com/th?id=OHR.TrunkBay_DE-DE7701117675_UHD.jpg) 
+
 2024-08-01 | [Schwimmender Markt, Karnaphuli-Stausee, Rangamati, Bangladesch (© Azim Khan Ronnie/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.KaptaiLake_DE-DE6482554434_UHD.jpg) 
 
 2024-07-31 | [Hoodoos, Sunset Point, Bryce Canyon Nationalpark, Utah, USA (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.HoodoosBryce_DE-DE5899937374_UHD.jpg) 
