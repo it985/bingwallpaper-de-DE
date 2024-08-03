@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-04 | [Sellin Seebrücke, Sellin, Rügen (© SW Travel Imagery/Alamy Foto de stock)](https://global.bing.com/th?id=OHR.SellinSeebruecke_DE-DE4280331105_UHD.jpg) 
+
 2024-08-03 | [Die drei natürlichen Brücken, Wulong Nationalpark, China (© Pav-Pro Photography Ltd/Shutterstock)](https://global.bing.com/th?id=OHR.WulongKarst_DE-DE9180126373_UHD.jpg) 
 
 2024-08-02 | [Trunk Bay, Virgin-Islands-Nationalpark, Saint John, USA (© cdwheatley/Getty Images)](https://global.bing.com/th?id=OHR.TrunkBay_DE-DE7701117675_UHD.jpg) 
