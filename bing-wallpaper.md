@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-07 | [St. Joseph Leuchttürme, Michigan, USA (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.MichiganLighthouse_DE-DE1121606429_UHD.jpg) 
+
 2024-08-06 | [Molokini, Maui, Hawaii, USA (© Douglas Peebles/eStock Photo)](https://global.bing.com/th?id=OHR.MolokiniHawaii_DE-DE0192501099_UHD.jpg) 
 
 2024-08-05 | [Lavendelfeld, Hertfordshire, England, Großbritannien (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.HertfordshireLavender_DE-DE9702415169_UHD.jpg) 
