@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-08 | [Fleckenkauz, Bangkok, Thailand (© Tfilm/Getty Images)](https://global.bing.com/th?id=OHR.SpottedOwlet_DE-DE2767331141_UHD.jpg) 
+
 2024-08-07 | [St. Joseph Leuchttürme, Michigan, USA (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.MichiganLighthouse_DE-DE1121606429_UHD.jpg) 
 
 2024-08-06 | [Molokini, Maui, Hawaii, USA (© Douglas Peebles/eStock Photo)](https://global.bing.com/th?id=OHR.MolokiniHawaii_DE-DE0192501099_UHD.jpg) 
