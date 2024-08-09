@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-10 | [Luftaufnahme der Elbphilharmonie in Hamburg (© Michael Abid/Alamy)](https://global.bing.com/th?id=OHR.Elbphilharmonie_DE-DE2773966721_UHD.jpg) 
+
 2024-08-09 | [Inka-Ruine Sacsayhuamán bei Cusco, Peru (© SL_Photography/Getty Images)](https://global.bing.com/th?id=OHR.IncaRuinPeru_DE-DE5129172652_UHD.jpg) 
 
 2024-08-08 | [Fleckenkauz, Bangkok, Thailand (© Tfilm/Getty Images)](https://global.bing.com/th?id=OHR.SpottedOwlet_DE-DE2767331141_UHD.jpg) 
