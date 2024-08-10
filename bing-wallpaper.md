@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-11 | [Holzpfad zum Kennedy Lake, Vancouver Island, Kanada (© EB Adventure Photography/Shutterstock)](https://global.bing.com/th?id=OHR.TofinoVancouver_DE-DE0365481347_UHD.jpg) 
+
 2024-08-10 | [Luftaufnahme der Elbphilharmonie in Hamburg (© Michael Abid/Alamy)](https://global.bing.com/th?id=OHR.Elbphilharmonie_DE-DE2773966721_UHD.jpg) 
 
 2024-08-09 | [Inka-Ruine Sacsayhuamán bei Cusco, Peru (© SL_Photography/Getty Images)](https://global.bing.com/th?id=OHR.IncaRuinPeru_DE-DE5129172652_UHD.jpg) 
