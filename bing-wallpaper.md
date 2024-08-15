@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-16 | [Achterbahn im Nagashima Spa Land, Präfektur Mie, Japan (© Japanese amateur photographer/Getty Images)](https://global.bing.com/th?id=OHR.JapanRollerCoaster_DE-DE2240435851_UHD.jpg) 
+
 2024-08-15 | [Hang Sơn Đoòng-Höhle, Nationalpark Phong Nha-Kẻ Bàng, Vietnam (© Geng Xu/Getty Images)](https://global.bing.com/th?id=OHR.HangCave_DE-DE9528025476_UHD.jpg) 
 
 2024-08-14 | [Dornteufel, Watarrka-Nationalpark, Australien (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.WatarrkaLizard_DE-DE9933808585_UHD.jpg) 
