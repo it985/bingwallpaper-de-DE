@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-21 | [Nazcatölpel, Wolfsinsel, Galápagos-Inseln, Ecuador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.NazcaBooby_DE-DE4166960600_UHD.jpg) 
+
 2024-08-20 | [Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.TetonSunrise_DE-DE4508190035_UHD.jpg) 
 
 2024-08-19 | [Bufadero de la Garita, Gran Canaria, Spain (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.RegataSanGines_DE-DE4289172038_UHD.jpg) 
