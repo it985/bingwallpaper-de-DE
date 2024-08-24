@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-25 | [Drohnenansicht der Weinberge im Remstal, Baden-Württemberg (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.VineyardsinRemstalvalley_DE-DE8704317940_UHD.jpg) 
+
 2024-08-24 | [Museumsinsel auf der Spree und Fernsehturm, Berlin (© TomasSereda/Getty Images)](https://global.bing.com/th?id=OHR.MuseumsinselSpree_DE-DE8201453372_UHD.jpg) 
 
 2024-08-23 | [Tempelruinen von Phanom Rung, Provinz Buriram, Thailand (© Banjongseal324/Getty Images)](https://global.bing.com/th?id=OHR.PrasatPhanom_DE-DE7459210012_UHD.jpg) 
