@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-26 | [Schutzgebiet Palmyra-Atoll, Pazifischer Ozean, USA (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PalmyraAtoll_DE-DE5676612889_UHD.jpg) 
+
 2024-08-25 | [Drohnenansicht der Weinberge im Remstal, Baden-Württemberg (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.VineyardsinRemstalvalley_DE-DE8704317940_UHD.jpg) 
 
 2024-08-24 | [Museumsinsel auf der Spree und Fernsehturm, Berlin (© TomasSereda/Getty Images)](https://global.bing.com/th?id=OHR.MuseumsinselSpree_DE-DE8201453372_UHD.jpg) 
