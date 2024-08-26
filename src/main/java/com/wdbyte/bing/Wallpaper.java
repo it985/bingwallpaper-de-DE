@@ -22,17 +22,16 @@ import com.wdbyte.bing.html.WebSiteGenerator;
 public class Wallpaper {
 
     // BING API
-    // private static String BING_API = "https://cn.bing.com/HPImageArchive.aspx?format=js&idx=0&n=10&nc=1612409408851&pid=hp&FORM=BEHPTB&uhd=1&uhdwidth=3840&uhdheight=2160";
-//     private static String BING_API =  "https://global.bing.com/HPImageArchive.aspx?format=js&idx=0&n=9&pid=hp&FORM=BEHPTB&uhd=1&uhdwidth=3840&uhdheight=2160&setmkt=de-DE";
-   private static String BING_API =  "https://global.bing.com/HPImageArchive.aspx?format=js&idx=0&n=9&pid=hp&FORM=BEHPTB&uhd=1&uhdwidth=3840&uhdheight=2160&setmkt=de-DE&setlang=en";
+    private static final String BING_API_TEMPLATE = "https://global.bing.com/HPImageArchive.aspx?format=js&idx=0&n=9&pid=hp&FORM=BEHPTB&uhd=1&uhdwidth=3840&uhdheight=2160&setmkt=%s&setlang=en";
+    private static String BING_API = "https://cn.bing.com/HPImageArchive.aspx?format=js&idx=0&n=10&nc=1612409408851&pid=hp&FORM=BEHPTB&uhd=1&uhdwidth=3840&uhdheight=2160";
 
-    private static String BING_URL = "https://global.bing.com";
+    private static String BING_URL = "https://cn.bing.com";
 
     /**
      *
      * {"en-US", "zh-CN", "ja-JP", "en-IN", "pt-BR", "fr-FR", "de-DE", "en-CA", "en-GB", "it-IT", "es-ES", "fr-CA"};
      */
-    private static String[] regions =  {"en-US", "zh-CN"};
+    private static String[] regions =  {"de-DE"};
     public static void main(String[] args) throws IOException {
         for (String region : regions) {
             String bingApi = String.format(BING_API_TEMPLATE, region);
@@ -65,7 +64,7 @@ public class Wallpaper {
 
     public static void changeConfig(String region) {
         region = region.toLowerCase();
-        if ("en-us".equalsIgnoreCase(region)) {
+        if ("de-de".equalsIgnoreCase(region)) {
             BingFileUtils.README_PATH = Paths.get("README.md");
             BingFileUtils.BING_PATH = Paths.get("bing-wallpaper.md");
             BingFileUtils.MONTH_PATH = Paths.get("picture/");
