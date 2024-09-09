@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-09 | [Iguazú-Wasserfälle an der Grenze zwischen Argentinien und Brasilien (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.IguazuRainbow_DE-DE8361660628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-08 | [Innenraum der Stadtbibliothek Stockholm, Schweden (© Andrei Hrabun/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.StockholmLibrary_DE-DE3864288273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-07 | [Annakolibri, Santa Cruz, Kalifornien, USA (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.SantaCruzHummer_DE-DE2867503109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
