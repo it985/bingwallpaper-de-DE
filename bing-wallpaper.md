@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-13 | [Innenhof der Jungfrauen, Alcázar von Sevilla, Spanien (© Danny Lehman/Getty Images)](https://cn.bing.com/th?id=OHR.AlcazarSeville_DE-DE3041524458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-12 | [Brautente, Quebec, Kanada (© Maxime Riendeau/Getty Images)](https://cn.bing.com/th?id=OHR.QuebecDuck_DE-DE2140613391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-11 | [Cape Breton Highlands, Nova Scotia, Kanada (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.CelticColours_DE-DE5682241306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
